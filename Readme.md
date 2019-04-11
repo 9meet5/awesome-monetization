@@ -29,12 +29,39 @@
 <br/>
 <br/>
 
-### Ads
+### Self-Hosted Ads
 
 <br/>
 
 - [Google AdSense](https://www.google.com/adsense/start)
 - [Carbon](https://www.carbonads.net/)
+- [Propeller Ads](https://propellerads.com)
+
+<br/>
+
+### Mobile Ads
+
+<br/>
+
+- [AdMob](https://admob.google.com/home/)
+- [AdColony](https://www.adcolony.com/)
+
+<br/>
+
+### Ads you make
+
+<br/>
+
+- [Facebook Ads](https://www.facebook.com/business/ads)
+- [Twitter Ads](https://business.twitter.com/en/solutions/twitter-ads.html)
+- [SnapChat Ads](https://forbusiness.snapchat.com/home)
+- [Apple Search Ads](https://searchads.apple.com/)
+- [Unity Ads](https://unity.com/solutions/unity-ads)
+- [Pinterest Ads](https://ads.pinterest.com/)
+- [Reddit Ads](https://www.redditinc.com/advertising)
+- [LinkedIn Ads](https://business.linkedin.com/marketing-solutions/ads)
+- [StackOverflow Ads](https://www.stackoverflowbusiness.com/advertising)
+- [Dribbble Ads](https://dribbble.com/advertise)
 
 <br/>
 
