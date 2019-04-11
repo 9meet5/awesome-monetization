@@ -43,8 +43,15 @@
 <br/>
 
 - [CJ](https://www.cj.com/)
-- ShareaSale
+- [ShareASale](https://www.shareasale.com/)
 - [SkimLinks](https://skimlinks.com/)
+- [Rakuten Affiliate](https://rakutenmarketing.com/affiliate)
+- [Rakuten LinkShare](https://rakutenmarketing.com/linkshare)
+- [Amazon Associates](https://affiliate-program.amazon.com/)
+- [Ebay Partner Network](https://partnernetwork.ebay.com/how-it-works/)
+- [iTunes](https://www.apple.com/itunes/affiliates/)
+- [w4](https://w4.com/)
+- [Admitad](https://www.admitad.com/in/) (India)
 
 <br/>
 
@@ -53,6 +60,14 @@
 <br/>
 
 - [Knoji](https://gilt.knoji.com/questions/gilt-affiliate-program/)
+
+<br/>
+
+### Poor Quality Stuff
+
+<br/>
+
+- [ClickBank](https://www.clickbank.com/)
 
 <br/>
 
