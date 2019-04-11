@@ -394,7 +394,7 @@
   - 4452075 -  BLINQ
   - 5176531 -  BlockChain Dynamix ltd
   - 2690199 -  Blooms Today Flowers & Gifts
-  - 1501311 -  Blue Host
+  - 1501311 -  **Blue Host**
   - 4484982 -  Blue&Cream
   - 5138724 -  BlueGrace Logistics
   - 4087999 -  BNB Tobacco
@@ -456,7 +456,7 @@
   - 4718383 -  BRASTY.PL
   - 5211673 -  Brava Affiliate Program
   - 4961627 -  Brayola
-  - 676705 -  Brian Tracy
+  - 676705 -  **Brian Tracy**
   - 2544758 -  BrickHouse Electronics LLC
   - 3132570 -  Briggs & Riley Travelware
   - 4243294 -  Brinks Home Security™
@@ -464,7 +464,7 @@
   - 2344878 -  Broadvoice
   - 1589036 -  Brooks Brothers
   - 3335251 -  Brooks Running
-  - 1488218 -  Brookstone
+  - 1488218 -  **Brookstone**
   - 5049332 -  BRUMLA.CZ/SK
   - 4975342 -  Buckle&Seam INT
   - 4885710 -  Budapester.com
@@ -2776,6 +2776,794 @@
   - 1779394 -  zZounds
   - 4711521 -  ČESKÁ POJIŠŤOVNA.cz
 - [Impact](https://impact.com/affiliate-marketers/)
+  + https://performancein.com/news/2017/01/20/impact-radius-makes-800000-affiliates-available-new-discovery-tool/
+  + https://impact.com/agency-partners/
+  - 1-800-Flowers.ca
+  - 10 All Access
+  - 1800baskets.com
+  - 1800flowers.com
+  - 1MORE
+  - 1stopflorists
+  - 6 Pack Fitness
+  - 99designs
+  - ABC Woocommerce Hosting
+  - AbeBooks Affiliate Program
+  - Addition Elle
+  - adidas
+  - adidas Australia
+  - adidas Brazil
+  - adidas Canada
+  - Adorama
+  - ADP Business
+  - Adriel.ai
+  - Advance Auto Parts
+  - Aera Smart Home Fragrance
+  - affil
+  - Affiliates Program
+  - AgileHealthInsurance
+  - Agoda
+  - Airosportswear
+  - AJC Software
+  - Alamo Rent a Car
+  - Alamo.co.uk US
+  - Alamo.dk
+  - Alamo.fi
+  - Alamo.fr
+  - Alamo.it
+  - Alamo.no
+  - Alamo.se
+  - Alaska Airlines Mileage Plan - Points.com
+  - Aldermore
+  - All Apparent Software apps for Mac
+  - All Smile Products
+  - Allen Edmonds
+  - Allen Schwartz
+  - Allstate National Quoting
+  - Ambr Eyewear - Blue Light Blocking Glasses
+  - Anaconda Australia
+  - AppSumo
+  - Après
+  - Aramark
+  - Arhaus
+  - Arkuda Digital
+  - Armani Beauty Canada
+  - As We Change
+  - Atkins E-commerce
+  - Atom Tickets - Movie Tickets, Showtimes and More
+  - Audio Brand Central
+  - Auto Parts Warehouse
+  - AVON-Appointment
+  - AVON-lead
+  - Awara Sleep
+  - B12
+  - Backcountry.com
+  - BarkBox
+  - BCF
+  - Beachwaver
+  - Beauty By Design
+  - Bed In A Box
+  - BeeWits
+  - BeLightsoft
+  - Belkin AU
+  - Belkin DE
+  - Belkin UK
+  - Belkin US
+  - BeRightBack
+  - Bespoke Post
+  - Bestow
+  - Betta Home Living Australia
+  - Big 5 Sporting Goods
+  - Big Green Egg
+  - bigblu
+  - BigCommerce
+  - Bigstock
+  - BioClarity
+  - Biotherm Canada
+  - Biotherm USA
+  - Bitdefender
+  - BlazeTV
+  - Bloom Magic IE
+  - Blooom CPL
+  - Bohme
+  - Bonding Bees
+  - Bookbyte
+  - Books2Door
+  - Boost Mobile Australia
+  - Bowflex
+  - Boysstuff
+  - Bradford Exchange
+  - Brake Performance
+  - Brand Shop
+  - Brandless
+  - Breville
+  - BriefcaseHQ
+  - BrightMinds
+  - Brixton
+  - Brook & York Jewelry
+  - Brylanehome.com
+  - Budget Australia
+  - BuildDirect Advocate
+  - Bulb
+  - Bulletproof
+  - BURST Oral Care
+  - BuyDomains
+  - Cabela's
+  - Cables on Demand
+  - Caesars Entertainment
+  - Candy Club
+  - Canningvale Australia
+  - Capture One Pro
+  - CarParts.com
+  - Carter's l OshKosh Canada
+  - Casetify
+  - CatSpot
+  - Caviar
+  - CBS All Access
+  - CBS All Access Canada
+  - Cellucor
+  - Century 21 Department Stores
+  - Cettire
+  - Charming Charlie
+  - Chatham
+  - Chef's Plate
+  - Cheryl's
+  - Chi Chi London
+  - Choice Hotels International
+  - Cineworld
+  - CIVIC
+  - Clarisonic Canada
+  - Clintons
+  - Cloud Phone
+  - Coddle Inc.
+  - codeSpark
+  - Coinbase
+  - Coinsquare
+  - Coles Online
+  - Color Effects CC - Photoshop Panel
+  - Colorful Images
+  - comiXology
+  - Command-Tab Plus
+  - Configurator Reloaded – Photoshop Add-On
+  - Contenta Converter PREMIUM
+  - Cook Unity
+  - Cornerstone Sales
+  - CORSAIR
+  - CountAbout
+  - Craft Gin Club
+  - Crazy Domain Philippines
+  - Crazy Domains Australia
+  - Crazy Domains Hong Kong
+  - Crazy Domains India
+  - Crazy Domains Indonesia
+  - Crazy Domains Malaysia
+  - Crazy Domains Singapore
+  - Crazy Domains UK
+  - Credit Karma Tax
+  - CreditCards.org
+  - Creditspring
+  - Crocs CA
+  - Crocs DE
+  - Crocs EU
+  - Crocs FI
+  - Crocs FR
+  - Crocs NL
+  - Crocs SG
+  - Crocs UK
+  - Crocs US
+  - Currencyfair
+  - Current Catalog
+  - CyberGhost
+  - Cylance Consumer Shop
+  - David Jones
+  - Deaf Lottery Australia
+  - Decathlon NL
+  - Deck of Scarlet
+  - DEDEE FOR PC/MAC - EBOOK SIGNING
+  - Design By Humans
+  - Designer Living
+  - DesignRevision Store
+  - Deux Lux
+  - Deva Curl
+  - Devoted Pet Foods
+  - DHC
+  - Diet-to-Go
+  - discoDSP
+  - Discount Diamond Store
+  - Divan base direct
+  - Dockers
+  - DollarDays
+  - Door Superstore
+  - DoorDash Driver Acquisition Program
+  - Drainage Superstore
+  - DreamCloud
+  - Drip
+  - DRmare Campaign
+  - Drop
+  - Dropps
+  - DSX Exchange
+  - Dun & Bradstreet
+  - Duplicate Cleaner Pro
+  - e-Contract Forms for Secure B2B Transactions
+  - Earnest
+  - Easton
+  - Easy Comforts
+  - Eaze
+  - Eaze Wellness
+  - eBags
+  - Eddie Bauer CA
+  - Eddie Bauer US
+  - eFax
+  - eFax EMEA Countries
+  - EJuice Deals
+  - ElephantDrive
+  - Ellos.us
+  - Emeritus Institute of Management
+  - Emmeco Affiliate Program
+  - Endy
+  - Enjoy Flowers
+  - Enterprise Car Club
+  - Enterprise Rent a Car CA
+  - Enterprise Rent a Car USA
+  - Envato Elements
+  - Envato Market
+  - eSigns
+  - ESPN+
+  - Europasat Affiliate Programme
+  - Eve's Addiction Jewelry
+  - Everimaging Affiliate Program
+  - eVoice
+  - Exposures
+  - EyeBuyDirect
+  - EZL Scientific Data Analysis and Visualization Software
+  - FabFitFun
+  - FaceTory
+  - Famous Smoke Shop Cigars
+  - Fashionable Canes
+  - Fashionable Hats
+  - FBOMB
+  - Fine Stationery
+  - Finisterre
+  - Fit Life Tea
+  - Fitness Assistant
+  - FlixBus USA
+  - Floatie Kings
+  - Flowers by Florists.com
+  - FoodKick
+  - Forall Phones
+  - Forks over Knives
+  - Framed Bikes
+  - FreedomPop
+  - Freemake Affiliate
+  - French Connection Australia
+  - FreshDirect
+  - FromYouFlowers.com
+  - FruitBouquets.com by 1800Flowers.com
+  - fuboTV
+  - Fullbeauty Brands
+  - Fundrise
+  - Future College Fund
+  - Gainz Box
+  - Gant ES
+  - Gant FR
+  - Gant IT
+  - Gant PT
+  - Gant.co.uk
+  - Gant.com
+  - Getaround - Car Owners/Supply
+  - Getty Images
+  - Ghost Vapes
+  - GhostBed
+  - Gift Card Granny
+  - GiftTree
+  - GlassesUSA.com
+  - Glenmuir
+  - Global Delight Apps
+  - Global Healing Center
+  - Gobble
+  - goHenry UK
+  - Gompels UK
+  - goop
+  - GoToMeeting
+  - GoToWebinar
+  - Grasshopper Group
+  - Gravity Forms
+  - GreenSmartLiving
+  - Grenco Science
+  - Grocery Pup
+  - Grove Collaborative
+  - Guitar eBooks
+  - H&R Block Canada, Inc
+  - Handy.com
+  - Hargreaves Lansdown
+  - Harlequin FC
+  - Harry & David
+  - **Harry's**
+  - Haven Life Affiliate Program
+  - Hearing Direct Ltd USA
+  - Hearing Dogs
+  - Heaven Skincare
+  - HelloFresh Australia
+  - HelloFresh CA
+  - HelloFresh Europe
+  - HelloFresh NZ
+  - Hemp Bombs
+  - Hershesons Affiliate Programme
+  - Hibu
+  - Hoka One One
+  - Hollar
+  - Home Bay
+  - HomeServe
+  - Hoover's
+  - Hotwire Affiliate Program
+  - Hover
+  - Howe Tools Affiliate Programme
+  - HyreCar Inc.
+  - Ibotta
+  - iDeal Of Sweden
+  - iFlorist FR
+  - iKrush
+  - IL MAKIAGE - Makeup For Maximalists
+  - Images_Generator_Campaign
+  - Inboard
+  - **Instacart**
+  - Instacart - Shoppers
+  - Insulation Superstore
+  - Intego
+  - Intelius
+  - InTheSwim.com
+  - INTRUSTA
+  - IObit
+  - IQ
+  - Isadore
+  - **iStock**
+  - ItaliaRail
+  - Ivory + Mason Socks
+  - Ivory Ella
+  - Jaanuu
+  - JAM - Creative Courses for Kids
+  - Java Presse
+  - JC Whitney
+  - JEGS High Performance
+  - Jessicalondon.com
+  - **Jewelry.com**
+  - JOHN ELLIOTT
+  - Joyoshare
+  - June & January
+  - Just For Men
+  - JustAnswer
+  - Jutoh
+  - Kasamba, Inc
+  - Keen.com
+  - KeepSolid Sign
+  - Kerastase Canada
+  - KetoLogic
+  - Kiehl's Canada
+  - KIND
+  - Kingsizedirect.com
+  - Kobelli Jewelry
+  - Kohl's
+  - Koolaburra by UGG
+  - Korean Air
+  - Kosås
+  - Kwik Fit
+  - L'Equipeur
+  - La Roche-Posay Canada
+  - Ladder
+  - LaLaLoot
+  - Lambda School
+  - Lancome Canada
+  - **LastPass**
+  - Lawyer Leads
+  - Leap Life
+  - Lebara Mobile
+  - Leesa.com - A Mattress Redesigned
+  - **Lending Club - Investor**
+  - **LendingClub - Borrower**
+  - **LendingClub - SMB**
+  - **LendingClub Auto Refinance**
+  - LendKey - Private Student Loans
+  - LendKey - Student Loan Refinancing
+  - Lenovo AU
+  - Lenovo Austria
+  - Lenovo BE
+  - Lenovo Canada
+  - Lenovo Colombia
+  - Lenovo Denmark
+  - Lenovo Finland
+  - Lenovo France
+  - Lenovo Germany
+  - Lenovo Hong Kong
+  - Lenovo IE
+  - Lenovo Italy
+  - Lenovo Malaysia
+  - Lenovo Mexico
+  - Lenovo Netherlands
+  - Lenovo Norway
+  - Lenovo NZ
+  - Lenovo Singapore
+  - Lenovo South Korea
+  - Lenovo Spain
+  - Lenovo Sweden
+  - Lenovo Switzerland
+  - Lenovo Taiwan
+  - Lenovo UK
+  - Lenovo USA
+  - LetsGetChecked
+  - Level Sleep
+  - **Levi's®**
+  - Levi's® Canada
+  - Lightinthebox
+  - LightStream
+  - Liingo Eyewear
+  - Lillian Vernon
+  - LinkedIn Learning
+  - Linksys US
+  - Liquid Web / iThemes
+  - Lisette
+  - Lisette CA
+  - Livedrive
+  - Lively
+  - loanDepot
+  - Log Furniture Place
+  - **Logitech**
+  - Logitech IT
+  - Logitech NL
+  - Loot Crate
+  - Lorex Technology
+  - Louis Copeland
+  - Love with Food
+  - Lunarship Software
+  - M.Gemi
+  - Magicsuitswim
+  - Mailbird Pro
+  - Man Crates
+  - MandM Direct DE
+  - MandM Direct FR
+  - MandM Direct Poland
+  - Manly Bands
+  - Manscaped
+  - MAPS.com Shop
+  - Margin
+  - Mark's
+  - MarketXLS
+  - Martinic Audio
+  - Massdrop
+  - Mathficast
+  - Maven Car Sharing for Members
+  - Maven Car Sharing for Owners
+  - max-bone
+  - McAfee - Australia/New Zealand
+  - McAfee Brazil
+  - McAfee Europe (www.mcafeestore.com)
+  - McAfee Mexico & Chile
+  - McAfee United States/Canada
+  - Medjet
+  - MEL Science
+  - Menulog Australia
+  - Metrofax
+  - Metromile Insurance Services
+  - MGM Resorts International
+  - MH Themes
+  - Michaels Stores
+  - Microsoft- AU/NZ
+  - Mighty Recruiter
+  - Milani Cosmetics
+  - Miles Kimball
+  - Miniinthebox
+  - Miraclesuit
+  - Mizzen+Main
+  - Modern Fertility
+  - MOJO Marketplace
+  - Moneyspire Affiliate Program
+  - Monster.com
+  - Moosejaw.com
+  - Motiv Inc.
+  - MotoRefi
+  - MountainSteals.com
+  - My Tutor
+  - MyCleanID
+  - MyCleanPC
+  - MyFax
+  - MyGiftCardsPlus (MGC+)
+  - MyGreenFills
+  - MyPerfectResume
+  - MyPoints
+  - **Namecheap**
+  - National Car Rental
+  - Nationalcar.co.uk US & ROW
+  - Native Remedies & PetAlive
+  - Nature's Script
+  - Nautilus, Schwinn, Modern-Movement  Partner Program
+  - Nav
+  - Navy Mutual Life Insurance Leads
+  - Nectar Bath Treats
+  - Nectar Sleep
+  - Network Alliance
+  - New Era DE
+  - New Era FR
+  - Nextiva
+  - Ninjakitchen
+  - Nixon North America
+  - NOCO
+  - noom
+  - NordVPN
+  - Oak Furniture Land
+  - Office Designs
+  - Office Outlet
+  - Omio Travel Partner Program
+  - OneBlade
+  - OneClass
+  - Online Fabric Store
+  - Online Privacy Solutions
+  - Onnit
+  - Ooma Office
+  - Open Sky Affiliate Programme
+  - Openfit
+  - Orange Peel Box
+  - OshKosh B'gosh
+  - Ovo Australia
+  - P.volve
+  - Packs Project
+  - Paragon Stairs
+  - Parts Train
+  - Party Packs
+  - Party Pieces
+  - Paula's Choice US/CA
+  - PDF Expert
+  - Peasy Subscriptions
+  - Pelican Water
+  - Penhaligon's
+  - Penningtons
+  - Personalization Universe
+  - PetMountain.com Pet Supplies
+  - Pets Best Pet Insurance
+  - Photos by Getty Images
+  - Pick Your Plum
+  - Pictureline
+  - PlateJoy
+  - Plotagraph
+  - Pluralsight
+  - PokerGO
+  - Pollen
+  - Presetpro Lightroom Presets
+  - Pretty Litter
+  - PromGirl
+  - **Prosper.com**
+  - ProteusThemes premium WordPress themes
+  - Purple
+  - Purple Carrot
+  - Q-See
+  - Quality Cottages
+  - Quality Unearthed
+  - Qustodio
+  - Raymour & Flanigan
+  - Real Estate Wealth Builder
+  - Rebel Sport
+  - reCrib
+  - redmorph
+  - Reebok Australia
+  - Regional Finance
+  - Reitmans
+  - ReStockIt.com
+  - RewardSurvey
+  - Ria Money Transfer
+  - Riedel, Spiegelau and Nachtmann
+  - Roamans.com
+  - Rocksbox, Inc.
+  - Roma Designer Jewelry
+  - Roofing Superstore
+  - Roofstock
+  - **Rover**
+  - Rugs USA
+  - RW&CO
+  - Safestore
+  - Saltrock
+  - Sanuk
+  - Satinternet Affiliate Programme
+  - Save small. Live Large.
+  - SBI-Cloud
+  - Scentbird
+  - Scotch Porter
+  - SCOTTeVEST
+  - Scrubs & Beyond
+  - Secret Escapes DE
+  - Secret Escapes FR
+  - Secret Escapes IT
+  - Secret Escapes NL
+  - Secret Escapes UK
+  - Secret Escapes US
+  - SecureMac
+  - Seed Heritage Australia
+  - SendFlowers.com
+  - SentryPC
+  - Setapp
+  - SFERRA Fine Linens
+  - Sharkclean
+  - ShaveMOB
+  - ShippingEasy
+  - Shipt
+  - Shoebacca
+  - Shop Sphynx
+  - ShopAtHome
+  - Shows - Caesars Entertainment
+  - Shu Uemura Canada
+  - Shu Uemura USA
+  - Sigma Beauty
+  - Simple GIS Software - All Products
+  - Simplilearn Americas Inc.
+  - Simply Argan
+  - Simply Chocolate
+  - Simply Dresses
+  - SiriusXM
+  - Sitebeat
+  - Sittercity Affiliate Program
+  - SKYLUM Affiliate Program
+  - Smalls
+  - **Snapfish**
+  - Softorino (WALTR 2)
+  - Sony Australia
+  - southmoonunder
+  - **Southwest Airlines Rapid Rewards - Points.com**
+  - SpareFoot
+  - Specsavers Contact Lenses Australia
+  - Sport Crate
+  - Spotlight Australia
+  - Spring
+  - StackPath
+  - Station Casinos
+  - Steady
+  - SteelSeries
+  - Stitch Fix
+  - Stock Yards
+  - StockMarketEye
+  - StreetShares
+  - Stutterheim DE
+  - Stutterheim EU
+  - Stutterheim ROW
+  - Stutterheim Sweden
+  - Stutterheim UK
+  - Stutterheim US
+  - Stylin Trucks
+  - Succulent Studios
+  - Sucuri
+  - SugarSync
+  - Suggestic
+  - SuiteHop
+  - Summitsoft Campaign
+  - Super Chewer
+  - Supercheap Auto
+  - Surfshark
+  - SurveyMonkey Affiliate Programme
+  - Swagbucks
+  - Swagbucks Deutschland (DE)
+  - Swagbucks France (FR)
+  - Sweet Defeat - Stop Sugar Cravings
+  - Swiss knife of softwares
+  - Switchcraft
+  - Tally
+  - **Target**
+  - Targeted Medical Pharma
+  - Taylor Stitch
+  - TechSmith
+  - Telestream
+  - Tens Units
+  - Terra's Kitchen
+  - Teva
+  - Text.Design
+  - **Textbooks.com**
+  - TH Baker
+  - The Farmer's Dog
+  - The Good Guys
+  - The Great Courses Plus
+  - The Home Depot Canada
+  - The House
+  - The Mouse Merch Box
+  - **The New Yorker**
+  - The Paisley Box
+  - The Popcorn Factory
+  - The RealReal
+  - The Tot
+  - **Threadless**
+  - thredUP Affiliate Program
+  - Thumbtack
+  - ThymeMaternity
+  - Ticket Liquidator
+  - Ticketmaster Australia
+  - Ticketmaster France
+  - Ticketmaster New Zealand
+  - Ticketmaster UK
+  - TicketNetwork Affiliate Program
+  - Tidy Up
+  - Tile Giant
+  - Tile Magic
+  - TodayTix US and UK
+  - Tommy John
+  - Too Faced Cosmetics
+  - TP Toys
+  - Trade radiators
+  - TransferGo
+  - TransferWise
+  - Travelstart
+  - Treatwell AT
+  - Treatwell DE
+  - Treatwell ES
+  - Treatwell FR
+  - Treatwell IT
+  - Treexy
+  - Trifecta Meal Delivery
+  - Trim Financial Manager
+  - TRUSTist
+  - TSplus
+  - Turo
+  - Tyreplus
+  - **Uber Driver US**
+  - **Udemy.com**
+  - UGG
+  - ULA Equipment
+  - Ultimate Ears
+  - Unclutter
+  - UncommonGoods
+  - Uniform City
+  - UniqueVintage
+  - United Airlines MileagePlus - Points.com
+  - UNTUCKit
+  - UpChoose
+  - Upgrade
+  - Upstart Personal Loans
+  - US Business Funding - Small Business Loans, Working Capital and Equipment Financing
+  - US Search
+  - US-Mattress
+  - USB Lock Affliate Program
+  - Vacasa
+  - ValueMags Magazine Store
+  - ValueMags Mobile Offers
+  - vapor.com
+  - Varsity Tutors
+  - Veem
+  - VegaLash
+  - VEGAS.com
+  - Vi Trainer
+  - Vichy Canada
+  - Vidine - Video Clip Manager
+  - Vintage Cash Cow
+  - Vinyl Me, Please
+  - Vision Linen
+  - Visor
+  - Volcano eCigs
+  - Volcano eCigs - Japan
+  - Volusion
+  - VOX Premium Music Player
+  - VPN Unlimited
+  - Walter Drake
+  - Wantable, Inc.
+  - Warrior 12
+  - WatchBox
+  - Watches2U
+  - Wealthsimple
+  - Webkinz at Ganz eStore
+  - White Shanty
+  - Wilson Family of Brands
+  - Winnie the Pooh Coin
+  - Wirex
+  - Wolferman's
+  - Womanwithin.com
+  - Woodlore Cedar Products
+  - Woolworths Insurance All Products
+  - Woolworths Supermarkets
+  - Wovenly
+  - www.livehome3d.com
+  - www.swiftpublisher.com
+  - XOOM Energy
+  - Xtend
+  - Xtend-Life
+  - Yaasa
+  - Yoga Club
+  - Yogi Surprise
+  - Your Mechanic
+  - Your Smile Direct
+  - YSL Beauty Canada
+  - **Zenefits**
+  - ZUS Connected Car System
 - [ShareASale](https://www.shareasale.com/)
 - [SkimLinks](https://skimlinks.com/)
 - [Rakuten Affiliate](https://rakutenmarketing.com/affiliate)
