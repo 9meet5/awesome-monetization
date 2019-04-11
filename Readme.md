@@ -36,6 +36,7 @@
 - [Google AdSense](https://www.google.com/adsense/start)
 - [Carbon](https://www.carbonads.net/)
 - [Propeller Ads](https://propellerads.com)
+- https://www.thetoptens.com/niche-ad-networks/
 
 <br/>
 
@@ -70,6 +71,2711 @@
 <br/>
 
 - [CJ](https://www.cj.com/)
+  - 5147629 -  (CW) Coverwallet
+  - 3022407 -  (eUK) eUKhost Ltd
+  - 3812192 -  (IS) Interserver Webhosting and VPS
+  - 3623117 -  (PSL) Prime Slots
+  - 4332652 -  (WHUK) WebHosting UK COM Ltd.
+  - 1426179 -  1&1 IONOS Inc.
+  - 630927 -  1-800 AUTO YES
+  - 4613144 -  1-800 Postcards
+  - 4305697 -  1-800-DENTIST
+  - 857900 -  1-800-FLORALS
+  - 1972303 -  1-800-GET-LENS
+  - 3287844 -  **1-800-GOT-JUNK?**
+  - 3662048 -  1-800-inkfarm.com
+  - 1952646 -  123 Reg
+  - 4109522 -  123Ink.ca
+  - 418963 -  123Inkjets.com
+  - 2843671 -  1800lighting.com
+  - 5181877 -  1800Mattress
+  - 5140517 -  1Password - Password Manager
+  - 3530144 -  **23andMe**
+  - 2400910 -  **24 Hour Fitness**
+  - 2898768 -  24-7PressRelease
+  - 5161286 -  2Wheel
+  - 3485540 -  2xist
+  - 3022525 -  360training
+  - 1019547 -  39dollarglasses.com
+  - 4414317 -  3dcart
+  - 1403748 -  4 Wheel Drive Hardware
+  - 1907637 -  4 Wheel Parts
+  - 4786110 -  4camping.cz
+  - 1055136 -  4inkjets
+  - 4931207 -  51015KIDS.eu
+  - 5120484 -  55Mulberry
+  - 2297498 -  6pm
+  - 3014737 -  **99designs**
+  - 5150752 -  A'GACI Affiliate Program
+  - 4951577 -  a-mania.CZ
+  - 4951914 -  a-mania.SK
+  - 1844915 -  A.T. Cross
+  - 2096562 -  A1Supplements.com
+  - 4923442 -  Aaptiv
+  - 5148030 -  Aardvark Travel Insurance
+  - 898472 -  ABaby.com
+  - 2744902 -  Abacus24-7.com Printer Ink, Cables & Accessories
+  - 2624620 -  ABBYY Europe Affiliate Program
+  - 4136885 -  ABBYY USA
+  - 3276094 -  ABCmouse.com/ReadingIQ.com
+  - 5117930 -  Abe's of Maine Affiliate Program
+  - 829234 -  AbeBooks.co.uk - New, Second-hand, Rare Books & Textbooks
+  - 2446763 -  Abritel FR
+  - 4687407 -  Absorb Health
+  - 4601919 -  Abt Electronics
+  - 1127296 -  AC Lens
+  - 898551 -  Academic Superstore
+  - 4589208 -  Academy Sports + Outdoor Affiliate
+  - 5140335 -  ACBC
+  - 1817900 -  AccessoryGeeks.com
+  - 3412625 -  Accorhotels.com Asia Pacific
+  - 1911025 -  Accorhotels.com Europe & ROW
+  - 3412620 -  Accorhotels.com US & Canada
+  - 1753347 -  ACD Systems - DE
+  - 1466535 -  ACDSee
+  - 3303448 -  Ace Cash Express
+  - 4731797 -  Aceable.com
+  - 4942525 -  Acer Canada Online Store
+  - 4017900 -  Acer Online Store
+  - 2618386 -  Acne Studios
+  - 1596784 -  Acronis International GmbH
+  - 4230368 -  ActionZážitky.sk
+  - 4976740 -  ActivTrak
+  - 304810 -  Adagio Teas
+  - 4887735 -  Adam & Eve
+  - 4517371 -  AdopteUnMec.com
+  - 4883784 -  AdoramaPix.com
+  - 4451250 -  Adore Me
+  - 4851771 -  Adrenaline
+  - 4067754 -  Adrop.cz
+  - 3803104 -  Adrop.sk
+  - 4959947 -  Aeroflow Healthcare
+  - 2539603 -  AeroGrow
+  - 4924977 -  Aerosoles
+  - 5019660 -  aeyde.com
+  - 4609486 -  Ageo.cz
+  - 5181131 -  AIAIAI
+  - 3911749 -  Aidance
+  - 2557214 -  Air & Water
+  - 3936526 -  Air France - ES
+  - 3936531 -  Air France - FR
+  - 4219402 -  Air France - IT
+  - 4540033 -  Air France Brasil
+  - 1651654 -  Air France DE
+  - 1649592 -  Air France UK and Ireland
+  - 1648018 -  Air France USA
+  - 4753901 -  Air Malta
+  - 4432594 -  Airfarewatchdog
+  - 5185191 -  airhelp.com INT
+  - 4305571 -  Airocide
+  - 3102643 -  Airport Parking Reservations - point. click. park.
+  - 5154865 -  AirportParking.com
+  - 3677020 -  AirportRentalCars.com
+  - 5146556 -  AirVape
+  - 4945657 -  AirWander
+  - 1526385 -  AJ Madison, Your Appliance Authority
+  - 5045978 -  Alamo Drafthouse Cinema | Mondo
+  - 4488778 -  Albee Baby
+  - 4480803 -  Ali & Jay
+  - 2270432 -  AliExpress by Alibaba.com
+  - 1826017 -  All-Battery.com
+  - 5060295 -  AllClear
+  - 3409221 -  Allianz Pojistovna, A.s. - CZ
+  - 5016477 -  Allianz Worldwide Care
+  - 4968010 -  Allivet
+  - 2030193 -  Ally Invest
+  - 1419343 -  Alpha Omega Publications
+  - 5236049 -  Alphamarts
+  - 5144611 -  Alpine Swiss
+  - 4930728 -  ALPINEPRO.CZ
+  - 2858589 -  Amare Inc.
+  - 1520299 -  Amazing Clubs
+  - 5134053 -  AmbienteDirect - Global
+  - 4795402 -  AMC Networks
+  - 4445720 -  **American Eagle Outfitters**
+  - 5038514 -  **American Express Canada Credit Cards**
+  - 4727133 -  American Girl
+  - 3393442 -  American Home Shield
+  - 2437969 -  American Musical Supply
+  - 4759087 -  AMH AFFILIATES
+  - 3011689 -  Amiclubwear
+  - 4773223 -  AMOMA.com
+  - 5157767 -  Ananda Games B.V.
+  - 859514 -  Animal Den
+  - 5165807 -  ANINE BING
+  - 4929818 -  Anjolee
+  - 3693706 -  **Annie's**
+  - 2190096 -  ANSI
+  - 4327375 -  Answear.cz
+  - 4877395 -  Answear.hu
+  - 4877962 -  Answear.ro
+  - 4429957 -  Answear.sk
+  - 2773512 -  Antennas Direct
+  - 3989874 -  Antonioli
+  - 2730172 -  Apotal
+  - 3746510 -  Apparel Group
+  - 3259243 -  AppliancesConnection.com
+  - 4132330 -  AppyPie.com
+  - 4509453 -  Apress
+  - 4460821 -  Apt2B Furniture and Home Decor
+  - 4930883 -  Arc'teryx
+  - 247913 -  AreYouGame.com
+  - 2210176 -  Argos Insurance and credit
+  - 849260 -  argos.co.uk
+  - 1111879 -  ArkivMusic
+  - 5115983 -  Armani IT
+  - 5115985 -  Armani RU
+  - 4473583 -  Art to Frames , Custom and Personalized framing
+  - 5077403 -  Art.com
+  - 5110304 -  Arteza
+  - 5146989 -  As Seen On TV
+  - 5206547 -  Ashampoo INT
+  - 2173013 -  ashford
+  - 3861911 -  Ashley Stewart
+  - 3344584 -  AskNow.Com Pay-Per-Call Only Program
+  - 4920521 -  ASKO-NABYTEK.CZ
+  - 4920522 -  ASKO-NABYTOK.SK
+  - 4927566 -  Aspesi
+  - 5187810 -  aSquared Nutrition
+  - 2983194 -  ASTRATEX - CZ
+  - 5150403 -  Astratex.bg
+  - 5131779 -  ASTRATEX.HU
+  - 3304249 -  ASTRATEX.SK
+  - 1489014 -  **AT&T**
+  - 5195735 -  AT&T Mobility
+  - 5015545 -  Athena Cosmetics
+  - 2616908 -  Athleta
+  - 3616985 -  Atlantis, Paradise Island
+  - 1617128 -  Atlas Travel Insurance | HCCMIS
+  - 4631029 -  AtmosRX
+  - 2943263 -  Audials Windows Software
+  - 3693591 -  Audiobooks.com
+  - 5214382 -  AuraGlow
+  - 4466688 -  Austin Canoe & Kayak
+  - 4616199 -  AuthenticWatches
+  - 3795100 -  Auto Europe Car Rentals
+  - 1376813 -  AutoAnything
+  - 849384 -  AutoBarn.com
+  - 3579999 -  Autodesk - Europe
+  - 860966 -  Autodesk - The Americas
+  - 3579991 -  Autodesk - United Kingdom
+  - 4956152 -  Autodesk Asia Pacific
+  - 2740601 -  AutohausAZ.com
+  - 4961795 -  AutoNation
+  - 5091877 -  AvaCare Medical
+  - 1141919 -  Avanquest Software USA
+  - 4200723 -  Avant
+  - 5023839 -  Avas Flowers
+  - 4257305 -  AVAST Software
+  - 1931704 -  Avenue
+  - 2538890 -  AVG Technologies
+  - 5076232 -  AVIANCA EU
+  - 5148134 -  Avianca LifeMiles Credit Cards
+  - 5075736 -  AVIANCA US
+  - 3005438 -  Avira  UK - International Account
+  - 3005465 -  Avira - CA
+  - 2996815 -  Avira - DE, AT, CH
+  - 3005469 -  Avira - ES
+  - 3005467 -  Avira - FR
+  - 3300610 -  Avira - IT
+  - 3300632 -  Avira - PT
+  - 3300625 -  Avira - RU
+  - 3005471 -  Avira - TR
+  - 3005457 -  Avira - US
+  - 4831589 -  Avon
+  - 5111249 -  AWeber
+  - 4697950 -  AXA ASSISTANCE - CZ
+  - 5018595 -  AXA-ASSISTANCE.PL
+  - 4694283 -  Azores Getaways
+  - 4479827 -  Babbel
+  - 4836093 -  Babickarstvi.cz
+  - 4904901 -  BABICKARSTVO.SK
+  - 5204359 -  Bablic
+  - 1603335 -  BabyEarth and BabyWise
+  - 3563598 -  Back Stage
+  - 260551 -  Backcountry.com
+  - 3343807 -  Backcountry.com -SteepandCheap
+  - 3593457 -  BackJoy
+  - 4968775 -  BadCreditLoans.com
+  - 5079004 -  Bagalio.cz
+  - 5079008 -  Bagalio.sk
+  - 4648084 -  Bagin.cz
+  - 3471990 -  Bags & Bows by Deluxe
+  - 4825058 -  Balance by bistroMD
+  - 5106457 -  Baltic Tours
+  - 4639051 -  Bambino.sk
+  - 4949011 -  BAMBULE.cz
+  - 1610793 -  Banana Republic
+  - 2971891 -  Banana Republic Canada
+  - 2971895 -  Banana Republic EU
+  - 4856415 -  Bang & Olufsen
+  - 4498040 -  Banggood CJ Affiliate Program
+  - 5092638 -  BannerBuzz AU
+  - 5064629 -  BannerBuzz UK
+  - 4553219 -  Baracuta
+  - 4955324 -  BARCELO HOTELS US
+  - 5047380 -  **Barclaycard US Personal Loans**
+  - 4931276 -  Barclays US Online Savings
+  - 4675618 -  Bare Necessities
+  - 4258829 -  **Barnes & Noble**
+  - 3092702 -  Barron Designs
+  - 2094385 -  Baseball Rampage
+  - 4671299 -  Baseball Savings
+  - 1475547 -  **Bass Pro Shops**
+  - 1393333 -  BBQGuys.com
+  - 4583516 -  BBVA Compass Bank Affiliate
+  - 2542022 -  Beach Trading Co. (BeachCamera.com, BuyDig.com)
+  - 2720848 -  Beachbody
+  - 3554956 -  BeautifiedYou.com
+  - 5187284 -  BeautyBakerie.com
+  - 4098096 -  Beckett Media
+  - 4479075 -  Beddinginn.com
+  - 5207349 -  BedJet
+  - 5053367 -  BeenVerified
+  - 5188910 -  Befit4us.com
+  - 4754441 -  BELABEL.cz
+  - 3971834 -  Belk
+  - 5151153 -  Belle and June
+  - 4854093 -  Bellelily
+  - 1995531 -  BeltOutlet.Com
+  - 5120465 -  Ben Hogan Golf Equipment
+  - 4758044 -  Bench.ca
+  - 4111029 -  BenQ America
+  - 4577668 -  Bentley Leathers
+  - 4856236 -  BENU.CZ
+  - 5225065 -  BePink.cz
+  - 4709783 -  Best Buy Canada
+  - 5077378 -  Best Choice Products
+  - 3088068 -  Best of Orlando
+  - 4247934 -  Best Vet Care
+  - 1686526 -  **Best Western**
+  - 4892025 -  BESTBONUS.SK
+  - 4081605 -  BestBullySticks
+  - 2383016 -  BestBuyEyeGlasses.com
+  - 3857143 -  Bestcanvas.ca
+  - 3857135 -  Bestcanvas.se
+  - 3857121 -  Bestecanvas.nl
+  - 2742757 -  BestOfVegas
+  - 2030865 -  BetterWorld.com - New, Used, Rare Books & Textbooks
+  - 1759827 -  Betty's Attic
+  - 5059223 -  BeWooden.cz
+  - 4276099 -  BGASC - Buy Gold And Silver Coins
+  - 4025738 -  BHLDN
+  - 5126697 -  Bibliotech
+  - 5086876 -  BIBLOO DE-AT
+  - 4873442 -  BIBLOO.bg
+  - 5084288 -  BIBLOO.com
+  - 4634072 -  BIBLOO.cz
+  - 4873445 -  BIBLOO.hr
+  - 4640274 -  BIBLOO.hu
+  - 4873446 -  BIBLOO.nl
+  - 4873448 -  BIBLOO.pl
+  - 4685085 -  BIBLOO.ro
+  - 4873449 -  BIBLOO.si
+  - 4634073 -  BIBLOO.sk
+  - 5120503 -  Bidroom.com
+  - 4698022 -  Big Bus Tours
+  - 4506804 -  Big Lots!
+  - 4612000 -  Bigbrands.cz
+  - 4612007 -  Bigbrands.sk
+  - 247840 -  BIGDOGS.com
+  - 1087150 -  BiggerBooks.com
+  - 4393463 -  **Billabong.com**
+  - 3065612 -  **Bing Ads Affiliate Program**
+  - 4907313 -  Bing Ads France
+  - 5155741 -  Bing Ads Germany
+  - 2166096 -  Bistro MD
+  - 1561632 -  bitdefender
+  - 5127687 -  BJ's Wholesale Club
+  - 5173199 -  Bjorn Borg
+  - 4807354 -  Blacklane
+  - 4596356 -  Blain Farm & Fleet
+  - 4029387 -  Blick Art Materials
+  - 4452075 -  BLINQ
+  - 5176531 -  BlockChain Dynamix ltd
+  - 2690199 -  Blooms Today Flowers & Gifts
+  - 1501311 -  Blue Host
+  - 4484982 -  Blue&Cream
+  - 5138724 -  BlueGrace Logistics
+  - 4087999 -  BNB Tobacco
+  - 5119844 -  BoardStar.cz
+  - 5018953 -  BoatTrader.com
+  - 734451 -  BobWards.com
+  - 5000308 -  Bodum
+  - 5144615 -  Body Boss
+  - 5119532 -  Bokksu
+  - 4856736 -  BOLF.CZ
+  - 5070843 -  Bollman Hat Co.
+  - 4758292 -  Bonami.cz
+  - 5127520 -  Bonami.hu
+  - 4902089 -  Bonami.pl
+  - 5055589 -  Bonami.ro
+  - 4853998 -  Bonami.sk
+  - 3007908 -  Bonatex - CZ
+  - 4765934 -  Bonprix HU
+  - 4765938 -  Bonprix RO
+  - 4765932 -  Bonprix SK
+  - 306807 -  Bonsai Boy of New York
+  - 3848495 -  boohoo.com
+  - 4877119 -  boohooMAN
+  - 4023898 -  Bookbinders Design
+  - 3873488 -  Booking Buddy
+  - 3873506 -  Booking Buddy UK
+  - 4347407 -  Booking.com BENELUX
+  - 4297313 -  Booking.com France
+  - 4297289 -  Booking.com Germany
+  - 4347392 -  booking.com international RS
+  - 4347401 -  Booking.com Italy
+  - 5013325 -  Booking.com New Property Sign Up
+  - 5095558 -  Booking.com Nordics
+  - 5096493 -  Booking.com Poland, Czech Republic & Slovakia
+  - 4347393 -  Booking.com Spain / Latam / Brazil
+  - 5149535 -  Booking.com Taxi
+  - 4297311 -  Booking.com UK
+  - 4427449 -  Booking.com US (Private Program)
+  - 129899 -  BOOKSAMILLION.COM
+  - 4971332 -  BookVIP
+  - 5190064 -  Boom Watches
+  - 5145038 -  Boombod
+  - 3773527 -  Boomer - SK
+  - 4860338 -  Born Shoes
+  - 5087416 -  Born2be.com.ua
+  - 1602191 -  Boscov's Department Stores
+  - 5074539 -  BOSE EMEA
+  - 3401987 -  Bose.ca
+  - 3401906 -  Bose.com US
+  - 1723937 -  Botanic Choice
+  - 4445029 -  Boxed
+  - 4618826 -  BoxLunch
+  - 5070038 -  BoxUp
+  - 2223275 -  Bradford Exchange Checks
+  - 2823660 -  Brady Corp
+  - 3743636 -  BrandsMart USA
+  - 4727030 -  Brasty Eastern Europe
+  - 4727029 -  BRASTY.DE
+  - 4718383 -  BRASTY.PL
+  - 5211673 -  Brava Affiliate Program
+  - 4961627 -  Brayola
+  - 676705 -  Brian Tracy
+  - 2544758 -  BrickHouse Electronics LLC
+  - 3132570 -  Briggs & Riley Travelware
+  - 4243294 -  Brinks Home Security™
+  - 5110008 -  British Seniors Insurance Agency
+  - 2344878 -  Broadvoice
+  - 1589036 -  Brooks Brothers
+  - 3335251 -  Brooks Running
+  - 1488218 -  Brookstone
+  - 5049332 -  BRUMLA.CZ/SK
+  - 4975342 -  Buckle&Seam INT
+  - 4885710 -  Budapester.com
+  - 4250177 -  Budget Pet Care
+  - 3636669 -  Buffalo David Bitton
+  - 4450175 -  Build-A-Bear UK
+  - 4437055 -  Build-A-Bear US
+  - 4389502 -  Build-a-Bear.de
+  - 2648659 -  Build.com, Inc.
+  - 4018548 -  BuildASign and EasyCanvasPrints
+  - 4821319 -  Buildium
+  - 4286543 -  BUILT NY
+  - 4747045 -  BulbHead
+  - 3194883 -  Bullguard
+  - 2762573 -  Burke Decor
+  - 4515547 -  Burts Bees Baby
+  - 5013119 -  Butikovo / Butikmoda
+  - 4432968 -  Butlers.cz
+  - 5116161 -  Butter Shoes
+  - 4073629 -  BuyAutoParts.com
+  - 3214875 -  buybuy BABY
+  - 4796434 -  BuySeasons
+  - 2823765 -  Cafe Britt Gourmet Coffee
+  - 1956334 -  CafePress-Custom T-Shirts, Unique Gifts, Posters and more.
+  - 3378050 -  CalChamber
+  - 2056438 -  Calendars.com
+  - 2698199 -  California Astrology Association
+  - 4815133 -  California Delicious
+  - 4522611 -  Caliroots
+  - 2285075 -  CallawayGolf.com
+  - 863484 -  CallawayGolfPreowned.com
+  - 5105744 -  CamelBak
+  - 3655512 -  Cameta Camera
+  - 4735529 -  Camp Chef
+  - 2842866 -  Campus Book Rentals
+  - 4247933 -  Canada Pet Care
+  - 2770190 -  CanadaVet
+  - 5090254 -  Canadian Tire
+  - 2376964 -  Canon
+  - 2605634 -  Canvas On Demand- Photos Become Canvas Art
+  - 2791575 -  Canvas People
+  - 3857152 -  Canvasdiscount.com
+  - 4757646 -  canvasonsale.com
+  - 3783238 -  CanvasWorld
+  - 2747226 -  Capital Bank
+  - 5191044 -  Car Computer Exchange
+  - 4612127 -  Car Rental 8
+  - 4884865 -  Car Toys
+  - 4746561 -  Carbon38
+  - 5148548 -  CardKangaroo
+  - 2408916 -  Care.com
+  - 4437791 -  Careington Dental
+  - 4465405 -  Carhartt
+  - 1603901 -  Caribbean Affiliate Program
+  - 2826756 -  CARiD.com
+  - 2387410 -  CarmelLimo.com
+  - 5043450 -  Carolina Footwear
+  - 2746196 -  Carolina Rustica
+  - 4593168 -  Carolyn Pollack/American West Jewelry
+  - 3427850 -  Carousel Checks
+  - 2524135 -  Carrot-Top.com
+  - 1552894 -  CarrotInk.com - Save a Bunch on Printing Supplies
+  - 3156338 -  Carson Dellosa Education
+  - 4531654 -  Casadei
+  - 2777545 -  Case-Mate
+  - 3510674 -  caseable - INT
+  - 4896027 -  Cash Store
+  - 3800597 -  CashAdvance.com
+  - 1989180 -  Cashmere Boutique
+  - 2790913 -  CatholicMatch.com
+  - 4920009 -  CAVIALLO.EU
+  - 3644111 -  CB-1 Weight Gainer by Supragenix.
+  - 3953882 -  CBAZAAR-World's Largest Online Indian Ethnic Wear
+  - 4967925 -  CDRmarket.cz
+  - 4967945 -  CDRmarket.hu/ro/pl
+  - 4967941 -  CDRmarket.sk
+  - 4375386 -  CellPhoneCases.com
+  - 4126891 -  CellularOutfitter.com
+  - 1845757 -  Cengage
+  - 5102421 -  Centara Hotels & Resorts
+  - 4513630 -  Center Parcs FR
+  - 2627317 -  Century Novelty
+  - 3772579 -  CenyNaDne.sk
+  - 5006846 -  Cestovná kancelária DAKA.sk
+  - 1921203 -  CEWE PHOTO
+  - 4970062 -  Charlotte Olympia
+  - 3567335 -  CheapAir.com
+  - 5069840 -  Cheapfaremart
+  - 3060887 -  Cheapflights.com
+  - 5066438 -  CheapFlightsFreak
+  - 2515404 -  CheapOair
+  - 5018271 -  CheapOair.ca
+  - 4861279 -  CheapTickets
+  - 3904858 -  Check City Loans
+  - 3851509 -  Check Into Cash
+  - 2120189 -  Checks In The Mail
+  - 3450921 -  Checks SuperStore
+  - 5012716 -  Chefs Plate
+  - 4615063 -  Chemical Guys
+  - 4024878 -  Chicago Steak Company
+  - 4182027 -  Chicco USA
+  - 4022852 -  Chico's
+  - 4996230 -  Chico's Off The Rack
+  - 267501 -  Chief Supply
+  - 5051188 -  Chiltern Railways
+  - 3337353 -  Chinese Laundry
+  - 4593144 -  Choice Home Warranty
+  - 1509043 -  Choice Hotels
+  - 3983847 -  Choies.com
+  - 1588148 -  ChristianCafe.com
+  - 5014301 -  ChristianMingle US
+  - 4683385 -  Christmas Tree Shops andThat!
+  - 4597444 -  Chytapust.cz
+  - 4721711 -  Cigars International
+  - 4920297 -  CIT Bank
+  - 4098041 -  CitiCliq
+  - 5097219 -  Citizen Watch
+  - 5013335 -  CITY-SIGHTSEEING EU
+  - 5013337 -  CITY-SIGHTSEEING GBP
+  - 5013340 -  CITY-SIGHTSEEING USD
+  - 5211027 -  CityBlast
+  - 2805705 -  CityPASS
+  - 4905731 -  CJ Tickets – Powered by Ticket Evolution
+  - 4639634 -  CJM_ad2games
+  - 4880305 -  CJM_Altroconsumo IT
+  - 4532901 -  CJM_Mintgallery
+  - 4959868 -  CJM_Mobile Trend
+  - 4038033 -  CJM_Schottland GWS
+  - 5207591 -  CJM_THALYS-2019[FR]
+  - 4379461 -  CK ALEXANDRIA.CZ
+  - 4731601 -  CK České kormidlo - CZ
+  - 4051504 -  Clarks
+  - 4583502 -  Clearly AU and NZ
+  - 4583499 -  Clearly.ca
+  - 4532829 -  Cleor
+  - 4297609 -  Click & Grow
+  - 3419408 -  ClickMeeting
+  - 5140315 -  Clinique FR
+  - 4760897 -  Cliradex
+  - 3993299 -  Closeout Zone
+  - 2928793 -  Cloud 9 Living
+  - 818719 -  CLUBS OF AMERICA GIFT-OF-THE-MONTH-CLUBS
+  - 4713205 -  Coastal Scents
+  - 4583494 -  Coastal.com
+  - 3978260 -  Code42
+  - 2758903 -  Coffee Wholesale
+  - 4366278 -  Coldwater Creek
+  - 1672838 -  Collections Etc.
+  - 2844548 -  Columbia Sportswear
+  - 2138908 -  Compact Appliance
+  - 3171004 -  Competitive Cyclist
+  - 4348039 -  CompleteCase.com
+  - 3774102 -  Concord Supplies
+  - 2038918 -  Condor - US
+  - 5079793 -  Conns
+  - 4536611 -  Conrad Electronic International
+  - 4038908 -  Conrad.cz
+  - 4535290 -  Conrad.sk
+  - 693552 -  Constant Contact Affiliate Program
+  - 4639721 -  Contabo COM
+  - 3476017 -  Contact Lens King
+  - 1972316 -  ContactsAmerica
+  - 4511038 -  ContactsDirect Affiliate Program
+  - 860430 -  ContentWatch
+  - 3084302 -  Contiki
+  - 4943581 -  Converse
+  - 2965115 -  Cookies by Design
+  - 4586771 -  Cooking Light Diet
+  - 5002800 -  Cookly.me
+  - 3289323 -  Cool Glow
+  - 4989777 -  CoolFrames.com
+  - 5074627 -  Copper + Crane
+  - 998086 -  Corel Corporation
+  - 4517594 -  Corelle
+  - 2458053 -  Cosme-De.com
+  - 4013663 -  Cost Plus World Market
+  - 3071013 -  Country Inn & Suites by Radisson
+  - 4829964 -  Countrylife.cz
+  - 1614570 -  Coupons.com
+  - 1775620 -  CoutureCandy.com
+  - 5214980 -  CoverHound
+  - 2439983 -  CPO Commerce
+  - 4007512 -  Crabtree & Evelyn, Ltd
+  - 4364575 -  Crayola
+  - 4666989 -  Crazymass
+  - 4927755 -  Credible.com
+  - 3086012 -  Credit Karma
+  - 4936356 -  CreditGate24 INT
+  - 3693885 -  CreditRepair.com, Marketed by Progrexion
+  - 4253806 -  Crescent Electric Supply Company
+  - 4930117 -  CruiseAway.com.au by Dreamlines
+  - 965192 -  CruiseDirect
+  - 5150109 -  Cryptohopper
+  - 4104464 -  Crystal Ski Holidays
+  - 5074594 -  Crystal Travel US
+  - 3278515 -  CSOB Pojistovna
+  - 4915109 -  CSVAPE
+  - 3515617 -  CuraDebt Debt Relief, Free Debt Consultation
+  - 4727234 -  CuriosityStream
+  - 4677711 -  Current/Elliott
+  - 4836691 -  CVS
+  - 4742184 -  CVS Photo
+  - 1097361 -  CyberLink Global
+  - 2511859 -  Cycle Gear Direct
+  - 4917328 -  D-SPORT.CZ
+  - 4694284 -  Daily Steals
+  - 5066433 -  Daintri
+  - 1176698 -  Danskin Women's Apparel
+  - 5207064 -  Dante.cz
+  - 4155833 -  Darden Restaurants
+  - 4395908 -  Dashlane
+  - 4956575 -  DataVision
+  - 1566168 -  DatingDirect.com
+  - 2698182 -  DaySpring
+  - 2619820 -  DAZ 3D
+  - 3248718 -  Deals4U PriceRunner ROI
+  - 4884218 -  Debenhams IE
+  - 4880792 -  Debenhams UK
+  - 5021212 -  DECATHLON.CZ
+  - 4882378 -  DECODOMA.CZ
+  - 5217822 -  Decoronline.cz
+  - 5000412 -  Dedoma.sk
+  - 5205071 -  Defencebyte
+  - 5156618 -  DefensiveDriving.com
+  - 5162172 -  Defunc
+  - 4605417 -  Deichmann.cz
+  - 4640980 -  Deichmann.sk
+  - 5025044 -  Deiters DE
+  - 5142212 -  DEK.cz
+  - 5053003 -  DEKORHOME.CZ/SK
+  - 4380018 -  Dell Canada - Home & Small Business
+  - 5028134 -  Dell China
+  - 3671271 -  Dell Financial Services Canada
+  - 2125808 -  Dell Home & Home Office
+  - 4791793 -  Dell Outlet
+  - 2279881 -  Dell Refurbished Computers
+  - 1957211 -  Dell Small Business
+  - 5030624 -  Dell UK Refurbished Computers
+  - 4846352 -  Delmas.cz
+  - 5083156 -  Delmas.sk
+  - 4201589 -  DELSEY Paris
+  - 3471979 -  Deluxe Business Products
+  - 1003504 -  Dentalplans.com
+  - 5165498 -  DenyDesigns
+  - 3604787 -  Depositphotos
+  - 5175094 -  Dermacol.cz
+  - 5175097 -  Dermacol.sk
+  - 2668490 -  Dermstore
+  - 3941422 -  Desert Essence
+  - 4288374 -  Design Furnishings
+  - 1638006 -  Design Toscano
+  - 1913173 -  DesignAShirt
+  - 4191266 -  DesignCrowd
+  - 5184774 -  DeskView
+  - 5193786 -  Developing Experts
+  - 3992613 -  DHGate
+  - 4744305 -  Dia&Co
+  - 5080784 -  Diamond CBD
+  - 2217875 -  Diamonds-USA
+  - 4065627 -  Dickies.ca
+  - 2357926 -  Diecast
+  - 4400192 -  Different.cz
+  - 4808775 -  Differenta HU-RO
+  - 4691071 -  Differenta.sk
+  - 4469223 -  Digicel
+  - 4921116 -  DIGIEXPERT.HU
+  - 4878402 -  DIGITAL24.CZ
+  - 4878405 -  DIGITAL24.SK
+  - 3054995 -  DigitalRev Cameras
+  - 5158268 -  Diono Family Brands
+  - 392130 -  DirectGardening Affiliate Program
+  - 3999398 -  Discount Medical Supplies
+  - 2362700 -  Discount School Supply-School Supplies, Arts & Crafts
+  - 5116072 -  Discount Tire
+  - 1532677 -  DiscountContactLenses.com
+  - 4170809 -  DiscountGlasses.com
+  - 3035494 -  DiscountMags.com
+  - 2604731 -  Dish Network Subscriber Referral
+  - 5131972 -  Disney Holidays EMEA
+  - 3609731 -  DL1961 Women
+  - 4509167 -  Dockers DE
+  - 4453398 -  Dockers ES
+  - 4509725 -  Dockers France
+  - 4509166 -  Dockers NL
+  - 5070241 -  DocSimon.cz
+  - 4994416 -  DocSimon.de
+  - 5106207 -  Doctors Best Weight Loss
+  - 2875051 -  Docucopies
+  - 5092280 -  Doerrwerk leckere Obstsnacks-DE
+  - 445101 -  Domain.com
+  - 5019299 -  Domino’s Pizza UK & Ireland Limited
+  - 5038797 -  Doop.shop central Europe
+  - 4321587 -  Dorco
+  - 5157731 -  DOSFARMA
+  - 4869414 -  Dot & Bo
+  - 4914709 -  DR-HO'S
+  - 5205028 -  Dr. Kellyann
+  - 1578488 -  Dr. Leonard's Healthcare/Carol Wright Gifts
+  - 5140444 -  Dr. Numb
+  - 5006891 -  Dr.Max.SK
+  - 3714111 -  Dream Products Catalog
+  - 4759740 -  Dresslily
+  - 2634075 -  Drivers Ed
+  - 4883722 -  DRMAX.CZ
+  - 3745700 -  Duda
+  - 3449107 -  Duncraft Wild Bird Superstore
+  - 5143488 -  Dune London EU
+  - 5143485 -  Dune London UK
+  - 5143409 -  DVD-premiery.cz
+  - 5027071 -  DVERE-ERKADO.CZ
+  - 4355235 -  Dyn
+  - 4660055 -  Dynadot.com
+  - 3992766 -  Dynamite Clothing
+  - 5174135 -  Dyper
+  - 4355234 -  E-file.com
+  - 5021662 -  E-INSPORTLINE.PL
+  - 4824935 -  e-McKlein.pl
+  - 2884295 -  Easy Spirit
+  - 3192429 -  Easyspace
+  - 2265793 -  eBay Canada Technology Limited
+  - 4929738 -  eBeach Sweden & Norway
+  - 904879 -  eBooks.com
+  - 4946338 -  eBUX.cz
+  - 520129 -  eCampus.com
+  - 4102788 -  Economist Test Prep
+  - 5159564 -  Ecru
+  - 4088250 -  EDCskincare.com
+  - 1880835 -  EdenFantasys.com
+  - 5223175 -  EditSmart Video Editing
+  - 1429390 -  Edmunds.com - Cars / Trucks / SUV
+  - 5074754 -  Edureka
+  - 1388074 -  eFax
+  - 4100866 -  eFax Australia
+  - 4574660 -  eGlobal Central
+  - 722009 -  eharmony.com
+  - 1409810 -  eHealthInsurance
+  - 4548899 -  eibmarkt.com
+  - 825733 -  eInvite.com
+  - 4631322 -  Ekskluzywna.cz
+  - 1191916 -  Electric Insurance Company
+  - 5058649 -  ELEGRINA.PL
+  - 4997851 -  Element
+  - 4403360 -  ELITESINGLES-eDarling.INT
+  - 4403425 -  ELITESINGLES.ca
+  - 4654932 -  EliteSingles.com US
+  - 2731204 -  Elizabeth Arden
+  - 5210963 -  ELLY Server
+  - 5043567 -  Elysium Health
+  - 4124009 -  eM Client
+  - 3817685 -  eMeals
+  - 2335572 -  Emirates - DE
+  - 2335573 -  Emirates France
+  - 2011339 -  Emirates UK
+  - 2335549 -  Emirates US
+  - 5116842 -  Empikfoto.sk
+  - 3364243 -  Endurance Extended Auto Warranties
+  - 4198549 -  Engaged Media Inc.
+  - 4510275 -  England Rugby Store
+  - 1413722 -  Entertainment Earth
+  - 4057800 -  Entertainment.com
+  - 1475632 -  EntirelyPets
+  - 3115291 -  Entrust Affiliate
+  - 5163049 -  ENVII
+  - 4071998 -  Epson
+  - 2894962 -  Equifax Small Business
+  - 4679352 -  Equipment
+  - 3131357 -  eReleases Press Release Distribution
+  - 5039070 -  Ergotron WorkFit
+  - 4502591 -  EricDress.com
+  - 4898057 -  Erno Laszlo
+  - 5090184 -  Esdemarca
+  - 2069963 -  ESET North America
+  - 4934389 -  ESET UK
+  - 3429071 -  eShakti
+  - 763447 -  essentialapparel.com
+  - 1400962 -  Esurance Auto Insurance
+  - 4081373 -  Etani - AT
+  - 4081363 -  Etani - CH
+  - 4622122 -  ETERNA - UK
+  - 4406138 -  Ethel M Chocolates
+  - 5176238 -  ETHOS Life Insurance
+  - 2503629 -  Etihad Airways Global
+  - 4161219 -  Etihad Airways US
+  - 4959263 -  Etihad Holidays [Digitas LBi]
+  - 2226687 -  eToro.com
+  - 5149517 -  Eufy Life
+  - 2261955 -  euroLens (Europe)
+  - 4608876 -  Euronics.cz
+  - 4608035 -  Evan-Moor Educational Publishers
+  - 4993785 -  EverlyWell
+  - 4008544 -  Evermine
+  - 4510255 -  Everton Direct
+  - 5135799 -  Everyplate
+  - 953659 -  eVitamins
+  - 4528238 -  Evite Affiliate program
+  - 2452632 -  eVoice
+  - 5221823 -  Exact Data
+  - 5068016 -  Exam Edge
+  - 5196857 -  Exoticca EU & US
+  - 5019209 -  Exoticca UK
+  - 1874913 -  Expedia, Inc
+  - 5090737 -  Expend
+  - 2591819 -  Experian.com
+  - 4794533 -  ExpertRating
+  - 4018320 -  Express
+  - 2183941 -  expresscopy.com
+  - 4049128 -  Extended Stay America
+  - 4709802 -  Eyeconic
+  - 4626082 -  Eyedictive
+  - 3818834 -  Eyeglasses.com
+  - 4527352 -  F-Secure US
+  - 1154360 -  fabric.com
+  - 4601714 -  Face-up.cz
+  - 1918541 -  FactoryOutletStore.com
+  - 5005645 -  Faherty
+  - 3344421 -  Fairstone Canada Personal Loans
+  - 4699387 -  Fairyseason
+  - 5175002 -  Familium.cz
+  - 3766361 -  Famous Smoke Shop
+  - 5002882 -  Fanatical
+  - 1420344 -  Fandango
+  - 5170755 -  FandangoNow
+  - 4904877 -  FANN.CZ
+  - 4934810 -  Fanpass
+  - 4389994 -  Farm Fresh To You
+  - 4731008 -  Farnell France / Belgium
+  - 5120506 -  Fashion Fabrics Club
+  - 5137384 -  Fashion to Figure
+  - 3522174 -  Fashionesta.com
+  - 3744145 -  Fashionette - DE
+  - 4633644 -  FashionMia
+  - 2184781 -  fastdomain
+  - 5178286 -  FastGrowingTrees.com
+  - 3525170 -  Fat Brain Toys
+  - 1855055 -  FatCow.com: MooMoney
+  - 2905278 -  Fax.com
+  - 5117295 -  Fay DE
+  - 5117297 -  Fay ES
+  - 5117298 -  Fay IT
+  - 2876713 -  FedEx Office
+  - 4901154 -  Feedo.cz
+  - 4901155 -  Feedo.sk
+  - 2691623 -  Fewo-direkt
+  - 3506213 -  Fila
+  - 5100074 -  Filippa K
+  - 5076067 -  Findster
+  - 4702044 -  First Aid Beauty
+  - 2844946 -  First Choice
+  - 4966293 -  Firstleaf Wine Club
+  - 4281523 -  Fitbit
+  - 4775343 -  Five Pawns
+  - 4978691 -  Fiverr Affiliates
+  - 5137678 -  Flat Tummy Co
+  - 5164024 -  FLEURS DE PARIS - INTERNATIONAL
+  - 5113136 -  FlexJobs
+  - 4521871 -  FlightHub
+  - 4905786 -  Flights Mojo
+  - 3921424 -  Flipkey
+  - 5002124 -  FLIR
+  - 2359864 -  Floraqueen
+  - 4650717 -  Florea.cz
+  - 1407656 -  FlowerDelivery.com
+  - 231679 -  Flowers Fast
+  - 4703401 -  flydubai
+  - 3768420 -  Focus Camera & Lifestyle By Focus
+  - 5144991 -  Focus Factor
+  - 3383804 -  Fold3.com
+  - 4742199 -  Fonetip.cz
+  - 4621728 -  Food52
+  - 5033111 -  FootJoy
+  - 2955694 -  Footnotesonline
+  - 4836574 -  Footshop - COM
+  - 4710231 -  Footshop - FR
+  - 4652907 -  Footshop DE & AT
+  - 4352963 -  Footshop.cz
+  - 4736192 -  Footshop.es
+  - 4589073 -  Footshop.eu
+  - 4496922 -  Footshop.pl
+  - 4352968 -  Footshop.sk
+  - 4406806 -  Footwear Unlimited
+  - 5150499 -  Foreo COM
+  - 4270263 -  Forestry Suppliers
+  - 4529306 -  Forever 21
+  - 5125035 -  Forever 21 - DE NL
+  - 5125032 -  Forever 21 FR ES IT
+  - 5125023 -  Forever 21 UK
+  - 2954830 -  FORWARD by elyse walker
+  - 171316 -  FORZIERI Italia
+  - 1337750 -  Fossil
+  - 4620184 -  Fotofinish.cz
+  - 4806885 -  FotoŠkoda.cz
+  - 1024283 -  FragranceX.com
+  - 991260 -  FramesDirect.com
+  - 2989730 -  Frank Dandy
+  - 5052193 -  Freebird Stores
+  - 4428260 -  FreedomPop
+  - 2699084 -  FreedomVoice
+  - 4526117 -  FreeTaxUSA
+  - 4643822 -  Freshlabels.cz
+  - 2431943 -  Freshpair.com
+  - 3422594 -  FRHI Hotels & Resorts
+  - 5111696 -  Frye Affiliate Program
+  - 4587359 -  FTD
+  - 4938100 -  Full Circle Farms
+  - 1792941 -  Full Of Life
+  - 4449509 -  Fun.com
+  - 5096651 -  Functional Remedies CBD Oil
+  - 4945418 -  Furla DE
+  - 4945415 -  Furla FR
+  - 4945413 -  Furla IT
+  - 4929685 -  Furla UK
+  - 5140358 -  Furla US
+  - 4491879 -  Fuse Lenses
+  - 4911961 -  FYE.com
+  - 2343701 -  G Adventures
+  - 4968590 -  G DATA Software, Inc.- US
+  - 4946866 -  G-Star RAW AU
+  - 4094849 -  G-Star RAW Canada
+  - 4094854 -  G-Star RAW Japan
+  - 4094124 -  G-Star RAW USA
+  - 4904309 -  G21-VITALITY.CZ
+  - 5153237 -  Gabriel & Co. Fine Jewelry And Bridal
+  - 5040622 -  GADEA ES
+  - 4014359 -  Gallery Collection
+  - 2930698 -  GameDuell - US
+  - 1132500 -  GameFly - Online Video Game Rentals
+  - 2821123 -  GamersGate.com
+  - 4720010 -  GamesDeal
+  - 4978487 -  GANT.CZ
+  - 4978490 -  GANT.SK
+  - 1610772 -  Gap
+  - 2971889 -  Gap Canada
+  - 2971897 -  Gap EU
+  - 3173941 -  Garage Clothing
+  - 3092756 -  Garmin US
+  - 4392552 -  GE Appliance Parts
+  - 4393153 -  GE Appliances Warehouse
+  - 2743018 -  GearBest
+  - 3387283 -  GeekBuying
+  - 5120488 -  Gemafina
+  - 5212104 -  Gen Mobile
+  - 4711524 -  Generali - CZ
+  - 4797728 -  Genuine People
+  - 4860339 -  Geox Shoes US
+  - 4222039 -  Get All Parts
+  - 5086568 -  Getaway
+  - 3142111 -  GetResponse
+  - 5002272 -  GetSetFly
+  - 4631778 -  getstamps.ca - Online Shop for customized stamps
+  - 4832555 -  getstamps.com - Online shop for personalized stamps
+  - 5181140 -  GetStronger DACH
+  - 2692680 -  Ghirardelli Chocolate
+  - 4943083 -  GhostBed by Nature's Sleep
+  - 2697082 -  GiftCardMall.com
+  - 4575680 -  GiftCards.com
+  - 1871989 -  GiftCertificates.com
+  - 3337465 -  GiGi New York / Graphic Image
+  - 4958837 -  Gillette on Demand
+  - 5199385 -  Glam Seamless
+  - 3448167 -  Glasses.com
+  - 2832460 -  GlassesShop
+  - 2625637 -  GlassesUSA.com
+  - 4600150 -  GlassWire
+  - 4999358 -  GLIX.CZ
+  - 1416570 -  Global Equipment Company
+  - 3858468 -  Globalrose
+  - 4851262 -  GNC
+  - 2592965 -  GO Airlink NYC
+  - 4897961 -  Go Airport Shuttle
+  - 1513033 -  GoDaddy.com
+  - 4048924 -  Godiva
+  - 4019306 -  Goedeker's
+  - 3279986 -  Goggles4u Eyeglasses
+  - 4870692 -  Gold Elements
+  - 4790456 -  GOLDCAR CENTRAL EUROPE
+  - 4790459 -  GOLDCAR UK
+  - 814094 -  Goldenmine and Jewelry Vortex
+  - 1481202 -  Golf Outlets
+  - 914040 -  GOLF SHOES PLUS
+  - 4124264 -  Golf18 Network
+  - 4842845 -  Goodyear Tire
+  - 5064504 -  GoPro
+  - 5166719 -  Gorealeurope.com
+  - 4988237 -  Gorilla Sports
+  - 5146688 -  GoSmart
+  - 5059826 -  Got Oil Supplies
+  - 3982297 -  Gotham Cigars
+  - 4306225 -  Gourmesso US
+  - 5234320 -  GourmetKava.cz
+  - 2932365 -  GovernmentAuctions.org
+  - 4019845 -  GR8 Fires
+  - 3485886 -  Grammarly
+  - 4211819 -  Graze
+  - 3341542 -  Great Deal Furniture
+  - 4671034 -  Great Little Trading Company
+  - 4666922 -  Great Value Vacations
+  - 5150121 -  Great Wolf Lodge
+  - 4943467 -  GreatCall
+  - 4046728 -  GreaterGood
+  - 4990953 -  Green Chef
+  - 3386711 -  Green Man Gaming
+  - 3855500 -  GRETCHEN-COM
+  - 4694431 -  GrilyKrby.cz
+  - 4009259 -  Grooming Lounge
+  - 4018453 -  GroundLink
+  - 4966065 -  GRUND.cz
+  - 4013483 -  Gucci DE
+  - 5178103 -  Gucci ES
+  - 4013487 -  Gucci FR
+  - 5108449 -  Gucci IT
+  - 4963584 -  Gucci Nordics
+  - 4120297 -  Guild Wars 2 Buy
+  - 1834595 -  Guitar Center
+  - 5043902 -  GUNSANDTUXEDOS.COM/CS
+  - 4851127 -  GymBeam.cz
+  - 5061936 -  Gymbeam.hu
+  - 5080676 -  Habit Food, Personalized
+  - 5069739 -  Habitissimo
+  - 4630704 -  Hairprint
+  - 4444762 -  HALBO.cz
+  - 2511560 -  Hale Groves
+  - 4082818 -  Hallelujah Acres
+  - 4086183 -  Hallmark eCards
+  - 2890400 -  Halloween Express
+  - 3252578 -  HalloweenCostumes.com
+  - 1472343 -  Hammacher Schlemmer
+  - 5144999 -  Hand MD
+  - 3987786 -  HansenWholesale.com
+  - 5137315 -  Happiest Baby
+  - 410947 -  Happy Feet Plus: Shoes, Sandals and Clogs
+  - 5029943 -  Happy Plugs
+  - 3805502 -  Harman
+  - 4155694 -  Harmoline.cz
+  - 3214882 -  Harmon Face Values
+  - 4587299 -  Hasbro
+  - 1045525 -  Hat World / Lids
+  - 5047265 -  HATCH Collection
+  - 4611197 -  Hatley
+  - 3232944 -  Hawaiian Airlines
+  - 4860942 -  HAWAJ.CZ
+  - 4038425 -  Hayneedle
+  - 4762046 -  Haynes Referral Programme
+  - 220481 -  Hazelden Bookstore
+  - 4214009 -  HBO Europe
+  - 2697106 -  HBO Shop
+  - 4072089 -  HBX
+  - 5193729 -  Head Over Heels
+  - 5171714 -  Health Testing Centers
+  - 4895962 -  HealthmateForever
+  - 2513429 -  Healthy Directions
+  - 2638712 -  Heart Internet
+  - 3104836 -  Heartland America
+  - 4528697 -  Heaven Gifts
+  - 4623356 -  heavy-trader.com
+  - 5169980 -  Hegen.com.pl
+  - 5169976 -  Hegen.cz
+  - 5169978 -  Hegen.sk
+  - 5069408 -  Heimdal Security Affiliate Program
+  - 3376485 -  Hej.sk Affiliate Program
+  - 5125806 -  Helix
+  - 3943014 -  HelloFresh - US
+  - 4707194 -  Helzberg Diamonds
+  - 5041634 -  Hemden-Meister.de
+  - 2750761 -  Herbspro.com
+  - 4684813 -  Herschel Supply Company
+  - 3739701 -  Hertz
+  - 5040607 -  Hidden Fashion
+  - 4447390 -  hide.me Ultimate Affiliate Program
+  - 4991063 -  Highlights For Children
+  - 2121915 -  Hip Hop Bling
+  - 4165310 -  Hiscox Small Business Insurance
+  - 5150122 -  HMA
+  - 4671807 -  Hobby Lobby
+  - 1000402 -  HobbyTron.com
+  - 5125526 -  Hofmann
+  - 5089274 -  Hogan DE
+  - 5089275 -  Hogan ES
+  - 5089276 -  Hogan FR
+  - 5089277 -  Hogan IT
+  - 5063188 -  Hogan UK
+  - 2193092 -  Holabird Sports
+  - 4532902 -  Holiday Autos
+  - 5021312 -  Holime.cz
+  - 5021314 -  Holime.eu
+  - 5151623 -  HolyGrailSteak.com
+  - 4685883 -  Home & Cook Groupe SEB Brands: All-Clad Krups Rowenta T-Fal
+  - 4644552 -  Home Chef
+  - 2236060 -  HomeAdvisor.com
+  - 2139042 -  HomeAway
+  - 4956136 -  HomeAway Australia
+  - 4453391 -  HomeAway Italia
+  - 4912243 -  HomeAway Netherlands
+  - 4912245 -  HomeAway Nordics
+  - 4912188 -  HomeAway Portugal
+  - 4453383 -  HomeAway Spain
+  - 2691614 -  HomeAway.co.uk
+  - 1958388 -  Homebase Finance - Insurance and Credit
+  - 5016136 -  HoMedics
+  - 4803229 -  HomeDNA.com
+  - 5154438 -  HomeGo
+  - 4648080 -  Homein.cz
+  - 3363005 -  Homelidays
+  - 2461201 -  HomeSquare
+  - 4248049 -  Hoppa DE
+  - 1678405 -  Hostgator.com
+  - 3838098 -  HOSTING.co.uk
+  - 5173193 -  Hostinger
+  - 1558347 -  HostMonster.com
+  - 2188468 -  Hostpapa
+  - 4618730 -  Hot Topic
+  - 1530444 -  Hotel Group Reservations by HotelPlanner.com
+  - 3752184 -  Hotelopia USA
+  - 1702763 -  Hotels.com
+  - 2612819 -  Hotels.com APAC
+  - 4687839 -  Hotels.com Latin America
+  - 2997613 -  HotelsCombined
+  - 4311505 -  HotelVoucher.sk
+  - 3791265 -  Hotter Shoes
+  - 5153670 -  Hracky-4kids.cz
+  - 1455022 -  HSN.com - Home Shopping Network
+  - 4905729 -  HTC Vive and HTC Phone
+  - 4909284 -  Hudson Jeans
+  - 5153234 -  Huk Gear
+  - 4942560 -  Hurley
+  - 4837385 -  Hyperbiotics, Inc
+  - 3716953 -  HyperSlevy
+  - 4455265 -  IBERIA EU
+  - 4455279 -  IBERIA UK
+  - 4455282 -  IBERIA US LATAM
+  - 4144675 -  icuracao.com
+  - 4907862 -  iDeal Of Sweden
+  - 4487634 -  IDrive
+  - 470094 -  Ignatius Press
+  - 4386835 -  IHG AMEA (Asia, Middle East & Africa)
+  - 4381309 -  IHG Europe
+  - 4390377 -  IHG Greater China
+  - 2854606 -  iHomeaudio
+  - 4965352 -  Illume Candles
+  - 2184930 -  illy caffe
+  - 5029614 -  iMyFone
+  - 1666237 -  Indigo Books & Music
+  - 5060306 -  Infinity-Boxes COM
+  - 3940596 -  InkCartridges.com
+  - 4008351 -  InkJetsuperstore
+  - 3997728 -  Insight Vacations
+  - 1876160 -  Insplanet Sweden
+  - 4849930 -  inSPORTline.at
+  - 4754417 -  inSPORTline.cz
+  - 4849927 -  inSPORTline.de
+  - 4894447 -  inSPORTline.hu
+  - 3721279 -  Insta Slim & InstantFigure Ultimate Body Slimming Shapewear
+  - 5205001 -  Insta360
+  - 3519202 -  Intego Mac Security
+  - 1675692 -  InterContinental Hotels Group
+  - 5185087 -  Interhome DK
+  - 5185083 -  Interhome SE NO
+  - 4017902 -  Intermix
+  - 5202183 -  International Living
+  - 3774518 -  INTERNATIONAL PROGRAM IBERIA EXPRESS
+  - 4964800 -  International Sports Sciences Association
+  - 2988201 -  Intrepid Travel
+  - 2271086 -  Intuit Small Business - QuickBooks, GoPayment, Payroll
+  - 5199564 -  Inventory Source Dropship Automation Software
+  - 5129501 -  Invigorated Water
+  - 5145122 -  Invisasox
+  - 2218454 -  invisibleSHIELD
+  - 3430470 -  Invite Health
+  - 1525519 -  Iolo System Mechanic
+  - 4510897 -  iPerfumy.pl
+  - 1564112 -  IPOWER
+  - 4402125 -  IQAir
+  - 4024059 -  iRobot
+  - 5099821 -  iRobot Canada
+  - 4375518 -  iRobot EU Affiliate Program
+  - 1878825 -  Isango! Affiliate Scheme
+  - 3090276 -  iSUBSCRiBE
+  - 4921700 -  italki
+  - 5201375 -  Itsjustlunch.com
+  - 5143339 -  IVY & OAK.COM
+  - 4888441 -  J. Jill
+  - 5049002 -  J.Crew Canada
+  - 5044933 -  J.Crew Factory
+  - 5049022 -  J.Crew UK
+  - 5041731 -  J.Crew US
+  - 5121835 -  J.ING US
+  - 4412704 -  Jabra
+  - 4888766 -  JAC Vapour Ltd
+  - 4941078 -  Jacadi US
+  - 4210226 -  Jackson Hewitt
+  - 3587693 -  Jalbum
+  - 5005652 -  Jamin' Leather
+  - 4403090 -  JamPlay
+  - 4529534 -  Jarden Consumer Solutions Canada
+  - 3588176 -  Jared The Galleria of Jewelry
+  - 5187247 -  Jax n Daisy
+  - 5102351 -  JCPenney Affiliate
+  - 5072743 -  JD.com
+  - 5014299 -  Jdate US
+  - 2217108 -  Jeanswelt.de
+  - 4242186 -  jedeautoscheibe.de
+  - 4687536 -  JENA-nabytek.cz
+  - 5197087 -  Jenni Kayne
+  - 4557191 -  Jetradar.com - Cheap flights from dozens of travel sites
+  - 4675103 -  Jeulia Jewelry
+  - 4958915 -  Jewlr
+  - 5204688 -  JibJab
+  - 2567679 -  Jildor Shoes
+  - 3010924 -  Jimmy Jazz
+  - 4914156 -  Jobscan
+  - 854349 -  jockey.com
+  - 4955229 -  Johnson Fitness and Wellness
+  - 4955146 -  Johnson Health Tech
+  - 4679457 -  Joie Clothing & Accessories for Women
+  - 4571108 -  JoJo Maman Bebe
+  - 2746548 -  Jomashop.com
+  - 4947080 -  Jora Credit
+  - 547981 -  JourneyEd.com
+  - 3776728 -  Journeys
+  - 3776597 -  Jozko.sk
+  - 4260289 -  JR Cigars
+  - 4966419 -  JS Group
+  - 5168742 -  Juicy Couture Beauty
+  - 5121792 -  Just CBD
+  - 2438816 -  Just Host
+  - 729207 -  JustFlowers.com
+  - 4584986 -  JUSTFLY
+  - 1972311 -  JustLenses
+  - 5075745 -  Justyou24 - Intl.
+  - 3738826 -  Kabbage Working Capital
+  - 5029665 -  Kaplan IT Training
+  - 5215242 -  Kara.cz
+  - 5215244 -  Karatrutnov.sk
+  - 4647453 -  KARE-shop.cz
+  - 5111500 -  Karité Naturelle INT
+  - 3342166 -  Kasa - CZ
+  - 3350997 -  Kaspersky France
+  - 3564589 -  Kaspersky Italy
+  - 502178 -  Kaspersky Lab
+  - 4936904 -  Kaspersky Lab Brazil
+  - 4843791 -  Kaspersky Lab Denmark ApS (Nordics)
+  - 4890505 -  Kaspersky Lab LATAM
+  - 3266946 -  Kaspersky Lab North America
+  - 2660710 -  Kaspersky UK
+  - 4989931 -  Kate Aspen & Baby Aspen
+  - 2894314 -  Katom.com - Kitchen and Restaurant Supplies
+  - 3588171 -  Kay Jewelers
+  - 5144910 -  KAYAK US/CA
+  - 2522716 -  KEETSA Mattresses
+  - 2077357 -  Keller Sports - DE
+  - 3197005 -  Keller Sports - Europe
+  - 4228374 -  Keller Sports ES
+  - 2631591 -  Keller Sports FR
+  - 3989534 -  Kendra Scott
+  - 4964921 -  Kenneth Cole
+  - 4120417 -  Keurig Canada
+  - 5040747 -  KidsCasting.com
+  - 4450361 -  Kidsroom.de - Baby products online store
+  - 5217287 -  Kind Juice
+  - 4533590 -  KingsBottle
+  - 4518745 -  Kinguin
+  - 3626800 -  Kirkland's Home
+  - 5105235 -  Kisses Dating INT
+  - 4766423 -  Kiwi.com
+  - 2628179 -  Kmart
+  - 4281592 -  Knetbooks.com
+  - 4805198 -  KnihyDobrovsky.cz
+  - 4873784 -  Knock Knock & Emily McDowell & Friends
+  - 4839865 -  KnownHost
+  - 2088604 -  Koffer24
+  - 5182676 -  Kokoon Technology Limited
+  - 5059184 -  KORMIDLO.PL
+  - 3483353 -  KOSS Stereophones
+  - 4028348 -  Kotula's
+  - 5078934 -  Krack Online
+  - 4905059 -  KRMENI.CZ
+  - 5060164 -  Kulina.cz
+  - 5060173 -  Kulina.hu
+  - 5060172 -  Kulina.pl
+  - 5060168 -  Kulina.sk
+  - 4409645 -  KvetinyExpres.cz
+  - 4066978 -  KWU-PORTAL.de
+  - 5030015 -  Kärcher UK
+  - 4927529 -  KÄRCHER.CZ
+  - 5114453 -  L'Autre Chose COM
+  - 5114451 -  L'Autre Chose IT
+  - 4958884 -  L'Occitane Canada
+  - 4571499 -  L'Occitane en Provence
+  - 4060622 -  L.K. Bennett
+  - 4578197 -  La Perla US
+  - 4762650 -  La-Z-Boy
+  - 4353390 -  Lakeside Collection
+  - 5193265 -  Lamaxshop.cz
+  - 3713948 -  LAN Airlines
+  - 3683615 -  Lands' End
+  - 1437201 -  Laplink Software
+  - 4597366 -  Lascana CZ
+  - 4597368 -  Lascana HU
+  - 4597369 -  Lascana SK
+  - 5053288 -  LasVegas.com
+  - 4727884 -  Laura.ca
+  - 4894829 -  LAVALIERE.CZ
+  - 4962440 -  LAVITA-CZECH.cz
+  - 4690535 -  LeafFilter Gutter Protection
+  - 4935062 -  Leatherman
+  - 4930658 -  LECHUZA US
+  - 3170898 -  LeftLane Sports
+  - 753790 -  LegalZoom.com
+  - 4671918 -  Legoland Discovery Center
+  - 5154182 -  Lekarna.cz
+  - 4884367 -  Lending Tree
+  - 3932116 -  Lenox
+  - 1478789 -  Lens.com
+  - 4944090 -  Lensabl - The Online Optometrist
+  - 5111236 -  LensCrafters
+  - 3117602 -  LensDirect.com
+  - 4994169 -  Leonisa Intimate Apparel
+  - 4509823 -  Levis France
+  - 4509819 -  Levis Germany
+  - 4511550 -  Levis Italy
+  - 4509821 -  Levis Netherlands
+  - 4509816 -  Levis Spain
+  - 1104648 -  Lexington Law by Progrexion
+  - 4044331 -  LexMod.com
+  - 3027894 -  Liberty Mutual
+  - 3835168 -  LibertyTax
+  - 5051353 -  Life Extension Europe
+  - 3259588 -  Life is Good
+  - 1811754 -  LifeExtension.com
+  - 1817872 -  LifeLock Identity Theft Services
+  - 4898292 -  Lighting Ever LTD
+  - 2683708 -  LightInTheBox
+  - 4885459 -  LightsOnline.com
+  - 5080165 -  Lime Crime
+  - 4056413 -  Limos.com
+  - 4626883 -  Linen Chest
+  - 4950674 -  Lingerie.com
+  - 4964639 -  Lingoda COM
+  - 4965857 -  Link AKC
+  - 5174951 -  Lino.cz
+  - 4938987 -  LINORYTY-NASTENKY.CZ
+  - 3323178 -  Liquid Web Preferred Partner Program
+  - 5221081 -  Literatibooks.com
+  - 1592463 -  Little Giant Ladder Systems
+  - 2213024 -  Live it
+  - 2896650 -  Live Superfoods
+  - 2324734 -  LivePerson - Expert Advice
+  - 4775341 -  Livify
+  - 4825514 -  Living DNA
+  - 3724478 -  LivingSocial
+  - 4263455 -  LKQ Online
+  - 4531639 -  LN-CC
+  - 872520 -  Lobster Gram
+  - 3557279 -  LocalFlavor.com
+  - 5040573 -  LODI ES
+  - 2534397 -  Logitech
+  - 2720728 -  Logitech UK
+  - 2734743 -  Logitech – DE / AT / CH
+  - 4412481 -  LogMeIn
+  - 2239542 -  Logo Design - The Logo Company
+  - 3601121 -  Logo Garden
+  - 4369957 -  LogoWorks
+  - 5053896 -  Lollicup
+  - 3706125 -  Lonely Planet
+  - 4807148 -  LookupFare.com
+  - 4842169 -  Loralette
+  - 4802689 -  Love Home Swap
+  - 293124 -  Love Scent Pheromone
+  - 3792305 -  Lowe's Canada
+  - 4346056 -  LTD Commodities
+  - 4777835 -  Lucky Brand
+  - 4035229 -  LuckyVitamin.com
+  - 4018290 -  Lufthansa - AE
+  - 4017589 -  Lufthansa - AR
+  - 3966029 -  Lufthansa - AU
+  - 4018269 -  Lufthansa - BG
+  - 3966024 -  Lufthansa - BR
+  - 3965990 -  Lufthansa - CA
+  - 4018284 -  Lufthansa - CN
+  - 3966020 -  Lufthansa - CZ
+  - 3966032 -  Lufthansa - GR
+  - 4017591 -  Lufthansa - HR
+  - 4018268 -  Lufthansa - HU
+  - 4018282 -  Lufthansa - IL
+  - 3966030 -  Lufthansa - IN
+  - 4018279 -  Lufthansa - JP
+  - 4018273 -  Lufthansa - LT
+  - 4017584 -  Lufthansa - MX
+  - 4018275 -  Lufthansa - NZ
+  - 2815899 -  Lufthansa - PL
+  - 4018271 -  Lufthansa - RO
+  - 3965994 -  Lufthansa - RU
+  - 4018287 -  Lufthansa - SA
+  - 3966022 -  Lufthansa - TR
+  - 4018272 -  Lufthansa - UA
+  - 2707123 -  Lufthansa - UK
+  - 3869738 -  Lufthansa - US
+  - 4018276 -  Lufthansa - ZA
+  - 1681549 -  Luggage Pros
+  - 1633921 -  LuggageGuy.com
+  - 2449164 -  Lugz Footwear
+  - 2547997 -  LUISAVIAROMA.COM
+  - 1953927 -  Lumens Light + Living
+  - 767685 -  Lunarpages Web Hosting
+  - 5157867 -  Luxomo
+  - 5147008 -  Mac Cosmetics FR
+  - 4230684 -  Mac Sales | Other World Computing
+  - 5031379 -  MacHighway by Deluxe
+  - 3486502 -  MacKeeper
+  - 242732 -  MacMall Affiliate Advantage Network
+  - 4671920 -  Madame Tussauds
+  - 5048992 -  Madewell Australia
+  - 5045850 -  Madewell US
+  - 4400174 -  Maeva
+  - 3553686 -  Magazine.co.uk
+  - 3872032 -  Magical Shuttle
+  - 1983932 -  MAGIX Software & VEGAS Creative Software
+  - 3274216 -  Mailigen
+  - 5088667 -  Maisons du Monde Europe (Germany & Italy)
+  - 4615486 -  MALL.CZ
+  - 4917820 -  MALL.PL
+  - 3743656 -  Malwarebytes
+  - 5169711 -  Man Outfitters
+  - 4510256 -  Manchester City Shop
+  - 4127648 -  Manchester United Direct
+  - 3350021 -  MANGO
+  - 5058659 -  Manzara Eastern Europe
+  - 4992236 -  Mapiful
+  - 2948456 -  Market America Brands SHOP.COM/Motives Cosmetics/Isotonix
+  - 4763187 -  Marshall Headphones
+  - 4915028 -  Martha Stewart Wine Co
+  - 5111980 -  MARTINELLI
+  - 3222324 -  Marvel Store
+  - 5106210 -  MasqueBAR
+  - 5105878 -  MASVIVA DACH
+  - 3034442 -  Match Ireland
+  - 2446099 -  Match.com
+  - 1522858 -  Match.com
+  - 5187482 -  Matchatea.bio
+  - 5006484 -  Mattress Firm
+  - 4746514 -  Maxis-Babywelt
+  - 4607978 -  McAfee France
+  - 4661659 -  McAfee Germany
+  - 4607953 -  McAfee UK
+  - 5131685 -  MDHearingAid
+  - 4856786 -  MEBLE-BOGART.PL
+  - 2698243 -  MedEx Supply
+  - 4600162 -  Media Temple
+  - 1727201 -  Medifast
+  - 3892157 -  Medix Select Nutritional Supplements
+  - 5145075 -  Meet Hue
+  - 3790866 -  Mega Motor Madness
+  - 3857092 -  Meinfoto.de
+  - 3857107 -  Meinxxl.de
+  - 4727885 -  Melanie Lyne
+  - 4443250 -  melijoe.com
+  - 2137044 -  Men's Titanium & Tungsten Jewelry
+  - 3837543 -  Men's USA
+  - 5096017 -  Mentislab.cz
+  - 4990553 -  Meredith Magazine Store
+  - 4740335 -  Michael Kors
+  - 3986986 -  Michele Watches
+  - 2673709 -  Mikasa
+  - 2936591 -  Milanoo
+  - 5069107 -  Mimovrste.com
+  - 4496538 -  Mindware.com
+  - 5102425 -  Mintbroker
+  - 5233931 -  Miracle Nutritional Products Affiliate Program
+  - 4371513 -  Misfit
+  - 5191488 -  Mission Farms CBD
+  - 3297336 -  Mission Restaurant Supply
+  - 149938 -  MisterArt.com
+  - 5018714 -  MIXIT.PL
+  - 2844179 -  MMOGA Ltd. UK
+  - 2844182 -  MMOGA Ltd. US
+  - 5149529 -  MobileShop EU
+  - 2283259 -  Modern Bathroom
+  - 4839834 -  Modlily.com
+  - 5036043 -  moebel.de
+  - 4994393 -  MoiDziadkowie.pl
+  - 5154184 -  MojaLekaren.sk
+  - 4899559 -  MOJO Marketplace
+  - 4897401 -  MoneyGram UK
+  - 4414998 -  MoneyGram US
+  - 4363563 -  Monnier Frères EU
+  - 4406012 -  Monnier Frères US & ROW
+  - 3857119 -  Monoeuvre.fr
+  - 3546818 -  Monoprice.com
+  - 2397857 -  MonthlyClubs.com™
+  - 2202486 -  moo.com US
+  - 1551486 -  Moosejaw
+  - 5182707 -  Mophie
+  - 3782732 -  Morezliav.sk
+  - 5193500 -  Morning Brew Newsletter
+  - 4735527 -  Morris 4x4 Center
+  - 5218364 -  Moschino
+  - 2463730 -  Motel 6 & Studio 6
+  - 4740447 -  Motor Trend OnDemand
+  - 1769310 -  Motorcycle Parts and Accessories
+  - 4057709 -  Motorola Mobility
+  - 3058605 -  Mountain Hardwear
+  - 4337634 -  Mouth - Indie Foods & Tasty Gifts
+  - 5025311 -  Movavi
+  - 5114519 -  Moveshop
+  - 4742200 -  MrakyHracek.cz
+  - 4164330 -  MrKate.com
+  - 3970740 -  MRP.com
+  - 3493922 -  Mrs. Prindable's
+  - 3090237 -  Murad Europe
+  - 1609619 -  Murad Skin Care
+  - 4698710 -  Murray's Cheese
+  - 2999324 -  Muscle & Strength
+  - 5025077 -  MUSCLEPOWER.PL
+  - 2834106 -  Music & Arts
+  - 1496477 -  Musician's Friend
+  - 2101690 -  MusicMonster.FM
+  - 4710182 -  Muziker.com
+  - 4040721 -  Mwave (CLT Computers)
+  - 4159329 -  My Bully Sticks
+  - 2603623 -  My M&M's
+  - 5178066 -  My Mobile Security
+  - 4927773 -  My Social Book
+  - 1553279 -  My Wedding Favors
+  - 3857124 -  My-picture.co.uk
+  - 1390130 -  myAutoloan.com
+  - 5170427 -  MYCATS LLC - Lola Miller
+  - 5201532 -  Mydaytrip.com
+  - 5063261 -  myFairtrade DACH
+  - 1762860 -  MyFax
+  - 2954202 -  MyFootpath.com
+  - 3843880 -  MyFreeScoreNow.com
+  - 4945330 -  myFUJIFILM
+  - 4921892 -  myLab Box
+  - 1933569 -  MyPoints
+  - 2818040 -  MySnoring Solutions
+  - 4189902 -  mytheresa - DACH
+  - 4189863 -  Mytheresa - FR
+  - 4189905 -  Mytheresa - International
+  - 4189896 -  Mytheresa - IT
+  - 2816786 -  Mytheresa - UK
+  - 2817689 -  Mytheresa - US
+  - 5007478 -  Nabytek-forliving.cz
+  - 4864007 -  Naked Zebra
+  - 4828144 -  Nakup-nabytek.cz
+  - 4055157 -  Namecheap
+  - 5108887 -  Namnband i Göteborg
+  - 5178468 -  Nannybag
+  - 4989665 -  Nanushka
+  - 3829272 -  National Academy of Sports Medicine
+  - 4673396 -  National Funding
+  - 3641695 -  National Geographic Animal Jam
+  - 996479 -  NationalGeographic online store
+  - 3263333 -  Naturalskinshop
+  - 5009597 -  Nature Journal
+  - 4322332 -  Nazuby.cz
+  - 4322334 -  Nazuby.eu
+  - 4356401 -  NBA Europe Store
+  - 2230306 -  NCH Software
+  - 3581195 -  Nearly Natural
+  - 5195853 -  Nebula
+  - 5090639 -  Neckermann.pl
+  - 2525025 -  Needink.com
+  - 4943574 -  Neon Litter
+  - 5139169 -  **NerdWallet**
+  - 3650496 -  Nest Learning & Nest Entertainment
+  - 1554194 -  Net 10 Wireless
+  - 1706705 -  Netaya.com
+  - 665178 -  Netfirms - Web Hosting for Small Business
+  - 5056101 -  Neurovalens Ltd
+  - 4553229 -  New Balance EU
+  - 4584989 -  New York & Company
+  - 3381564 -  Newark
+  - 4782826 -  Newchic
+  - 4262601 -  Newegg Business
+  - 2461402 -  Newegg Canada
+  - 1807847 -  Newegg.com
+  - 2679311 -  Newell Brands - Food & Appliance
+  - 4961511 -  Newell Brands - Outdoor & Recreation
+  - 4962285 -  Newell Brands Home Fragrance
+  - 4706420 -  Newell Brands – Baby & Writing
+  - 1457779 -  Newspaper Subscriptions
+  - 4060503 -  Newspapers.com
+  - 2477527 -  Nextiva
+  - 4510269 -  NFL Europe Shop
+  - 4861418 -  Nickis INT + USA
+  - 4942550 -  NIKE
+  - 5178980 -  Nina Hauzer
+  - 2624641 -  Nine West
+  - 4687921 -  Nisolo
+  - 4348962 -  nixplay
+  - 5131481 -  NJOY
+  - 5170700 -  Noble Gold Investments
+  - 4992773 -  Nokeys Global
+  - 3906677 -  Nolo
+  - 4780232 -  Nordictrack
+  - 4837117 -  NordVPN
+  - 1185635 -  Northerntool
+  - 2102181 -  Norton by Symantec
+  - 2156268 -  Norton by Symantec - Denmark
+  - 2193499 -  Norton by Symantec - Finland
+  - 2143811 -  Norton by Symantec - France
+  - 2156256 -  Norton by Symantec - Germany
+  - 2156241 -  Norton by Symantec - Italy
+  - 2156235 -  Norton by Symantec - Netherlands
+  - 2156263 -  Norton by Symantec - Norway
+  - 2156259 -  Norton by Symantec - Spain
+  - 2168123 -  Norton by Symantec - Sweden
+  - 2143822 -  Norton by Symantec - UK
+  - 5206670 -  Not Pot
+  - 4541231 -  Notino DE-AT
+  - 4932952 -  NOTINO.be
+  - 4536685 -  NOTINO.bg
+  - 4612495 -  Notino.co.uk
+  - 4510889 -  Notino.cz
+  - 5002536 -  NOTINO.dk
+  - 4541237 -  NOTINO.es
+  - 5002534 -  NOTINO.fi
+  - 4912189 -  NOTINO.fr
+  - 5015294 -  NOTINO.gr
+  - 4950301 -  NOTINO.hr
+  - 4510896 -  Notino.hu
+  - 4917850 -  NOTINO.it
+  - 4932953 -  NOTINO.nl
+  - 4541239 -  NOTINO.pt
+  - 4536684 -  NOTINO.ro
+  - 5002532 -  NOTINO.se
+  - 4536688 -  NOTINO.si
+  - 4510893 -  Notino.sk
+  - 4612029 -  NOTINO.ua
+  - 943306 -  NOVICA
+  - 1458280 -  Nuance
+  - 5147052 -  Nurse Mates
+  - 5176647 -  Nurx
+  - 3330805 -  NuWaveOven
+  - 5063871 -  NVIDIA
+  - 3885078 -  NYC Airporter
+  - 2381550 -  O&O Software
+  - 3812999 -  O'Reilly
+  - 1463156 -  Oakley
+  - 4826143 -  Odd Molly
+  - 5002439 -  OdKarla.cz
+  - 3593104 -  OE Wheels LLC
+  - 4705872 -  Of a Kind
+  - 5145395 -  Off Broadway Shoes
+  - 4713763 -  Office DEPOT
+  - 3635222 -  Office Depot and OfficeMax
+  - 2691601 -  Office Designs
+  - 4655834 -  OfficeFurniture2Go
+  - 4743066 -  OGIO
+  - 4687529 -  OKAY.cz
+  - 4951673 -  Olay
+  - 1610790 -  Old Navy
+  - 2971892 -  Old Navy Canada
+  - 3770605 -  olloclip
+  - 5060951 -  Olympia Sports
+  - 4389797 -  Olympus
+  - 5103198 -  OMIO Spain, Italy & Brazil
+  - 5103176 -  Omio Travel FR, NL & DE
+  - 4691150 -  Omio Travel GmbH APAC
+  - 5103158 -  Omio Travel GmbH UK & US
+  - 4522856 -  Omron Healthcare
+  - 5153127 -  OnBuy.com
+  - 4867369 -  One Kings Lane
+  - 3616964 -  One&Only Resorts
+  - 1838477 -  One.com
+  - 4511342 -  One.com USA Affiliate Program
+  - 1090881 -  OneGreatFamily Affiliate Program
+  - 2050945 -  Oneida LTD - Flatware
+  - 1343419 -  OneMain Financial
+  - 5205102 -  OnePlus
+  - 2725075 -  OneTravel
+  - 223626 -  Online Sports
+  - 3034241 -  Online Star Registry
+  - 1360528 -  Online TEFL course
+  - 1509223 -  Only Natural Pet
+  - 4780465 -  Ooma
+  - 4014941 -  Oopsy Daisy
+  - 4869376 -  OpenSky
+  - 4861280 -  Orbitz
+  - 4972142 -  Organic Basics
+  - 4990805 -  organicbabyfood24
+  - 1669122 -  Orion Telescopes and Binoculars
+  - 4285216 -  Orion Telescopes DE
+  - 4285224 -  Orion Telescopes FR
+  - 4285233 -  Orion Telescopes UK
+  - 4051651 -  OrnamentShop.com
+  - 2271527 -  Otel.com
+  - 2393553 -  OtterBox
+  - 4502358 -  OTTO - CZ
+  - 4494434 -  OTTO - HU
+  - 4502328 -  OTTO - SK
+  - 4984445 -  Ottod'Ame IT
+  - 4904495 -  Ourtime [Match.com]
+  - 4285004 -  Outdoor Tech
+  - 5132987 -  Outdoorsy
+  - 5165798 -  OutdoorVisit.com
+  - 5163826 -  OutlanderStore
+  - 3095168 -  Overland.com
+  - 2626374 -  Overstock.com
+  - 4982522 -  OVPN.com
+  - 4920914 -  Oxford Biolabs
+  - 5131785 -  Oxyleads.com
+  - 1369872 -  Pacific Coast Feather Company
+  - 5048183 -  Paddy Power UK
+  - 5009077 -  Paintballsports.de
+  - 4626091 -  Palace Resorts
+  - 5144132 -  Palate Club
+  - 4701776 -  Palgrave - INT
+  - 584642 -  Panda Security
+  - 4295086 -  PandaHall
+  - 5212177 -  PandaPlanner.com
+  - 2927906 -  Paper Source
+  - 4571109 -  PaperMart.com
+  - 4686326 -  Paragon Software Group
+  - 1415425 -  Paragon Sports
+  - 2005415 -  Parallels
+  - 4098645 -  Parfemy-Elnino.cz
+  - 4372207 -  Parfumcity.ch
+  - 4976598 -  Parfumdreams Global
+  - 3031034 -  Parfümerie Pieper
+  - 4009935 -  ParisCityVision.com
+  - 4159712 -  Park 'N Fly
+  - 3071015 -  Park Inn Hotels
+  - 5157017 -  Park Sleep Hotels
+  - 4684814 -  Parkland
+  - 3909103 -  ParkSleepFly.com - Airport Hotels & Parking
+  - 4698676 -  Parrot Europe
+  - 1919535 -  PARSHIP - find someone, find the love of your life
+  - 634218 -  Parts Express
+  - 2477714 -  PartsGeek.com
+  - 5032667 -  Party City
+  - 4887633 -  PARYS.CZ
+  - 4887634 -  PARYS.SK
+  - 4944429 -  PatchMD
+  - 4723933 -  PatPat
+  - 4859057 -  PAUL HEWITT International
+  - 2692222 -  Paula Young
+  - 3131812 -  Paychex
+  - 4881039 -  Payoff
+  - 5171802 -  PC Mag Shop
+  - 3701636 -  PC Richard & Son
+  - 237343 -  PCM Affiliate Advantage Network
+  - 1519034 -  Peapod
+  - 4917114 -  PeerStreet
+  - 2346375 -  Peet's Coffee
+  - 3711405 -  People Media
+  - 2268827 -  PeopleFinders
+  - 5121885 -  Peoples
+  - 4505234 -  Pep Boys
+  - 4970085 -  Pepa.cz
+  - 4470662 -  PerfectLens
+  - 4506437 -  Perform Better
+  - 904674 -  Perfumania.com
+  - 550789 -  Perfume Emporium
+  - 3150741 -  Perry Ellis
+  - 4054257 -  Personal Creations
+  - 2507679 -  Personalabs
+  - 4867370 -  PersonalizationMall.com
+  - 4252778 -  PersonalLoans.com
+  - 2512456 -  Pet Care Choice
+  - 4247920 -  Pet Care Supplies
+  - 1836140 -  Pet Street Mall
+  - 5166170 -  Pet-market.sk
+  - 5064486 -  PetAssure Pet Plan
+  - 1711708 -  PETCO Animal Supplies
+  - 3175993 -  Peterson's and EssayEdge
+  - 5166171 -  Petkarma.pl
+  - 4949476 -  Peuterey DE
+  - 4949495 -  Peuterey IT
+  - 3961443 -  PF Flyers
+  - 4496985 -  Pharmapacks
+  - 4758357 -  Philipp Plein
+  - 2728387 -  Philips
+  - 4933687 -  Philips Lifeline
+  - 5040387 -  Philo
+  - 2696047 -  Phone.com Virtual Office
+  - 3857115 -  Photo-sur-toile.fr
+  - 5052508 -  Photobox FR
+  - 5052506 -  Photobox UK
+  - 4166778 -  Picanova.co.uk
+  - 3857148 -  Picanova.com
+  - 3857133 -  Picanova.de
+  - 1849166 -  PicturesOnGold.com
+  - 4014442 -  Pier 1
+  - 5121886 -  Piercing Pagoda
+  - 2249155 -  Pierre & Vacances FR/DE/BE
+  - 2249115 -  Pierre & Vacances UK
+  - 4237724 -  Pierre&Vacances España
+  - 5052422 -  PIKOLINOS EU
+  - 5122564 -  PIKOLINOS USD
+  - 4267436 -  Pilulka.cz
+  - 4438849 -  Pilulka.sk
+  - 565703 -  pinemeadowgolf.com
+  - 4837286 -  Pink Jeep Tours
+  - 4268837 -  PinkBasis
+  - 5138139 -  Pinkorblue.cz
+  - 5065599 -  Pinkorblue.pl
+  - 1576625 -  Pinnacle Systems: The #1 Selling Video Editing Software
+  - 4907360 -  Piriform (makers of CCleaner)
+  - 5089943 -  Pitney Bowes Affiliate Program
+  - 5126239 -  Pittman & Davis
+  - 4052060 -  Pixie Market
+  - 1935104 -  Pixum - photo service provider – SE, DK
+  - 1935099 -  Pixum photo service provider - UK
+  - 5045712 -  PlanRadar - INT
+  - 5067104 -  Plantronics
+  - 4465714 -  PlantsExpress.com
+  - 4004239 -  Plated
+  - 4930474 -  Playa Hotels & Resorts
+  - 4930656 -  PLAYMOBIL CA
+  - 4772298 -  PLAYMOBIL US
+  - 4960460 -  Plex
+  - 1904280 -  Points.com
+  - 4469124 -  Polynesian Cultural Center
+  - 2426393 -  PoolDawg.com
+  - 2558081 -  poolproducts.com
+  - 3704152 -  PoolSupplyWorld
+  - 4675104 -  Pop Chart Lab
+  - 4705762 -  Porzellantreff.de
+  - 4507590 -  Posters.cz
+  - 869276 -  Potpourri Group
+  - 3056145 -  Power Systems
+  - 5207084 -  Powersanté
+  - 551771 -  PowWeb Hosting
+  - 4281032 -  PR1090 PriceRunner ROI
+  - 4281136 -  PR1156 PriceRunner ROI
+  - 4281153 -  PR1170 PriceRunner ROI
+  - 4281237 -  PR1217 PriceRunner ROI
+  - 5194827 -  prAna
+  - 4430339 -  PRANA - Organic & Vegan Foods 1
+  - 3334993 -  Preferred Hotels & Resorts
+  - 4854412 -  PREMIER FARNELL Czech Republic
+  - 4731005 -  Premier Farnell Germany
+  - 4731176 -  Premier Farnell Nordics
+  - 4854415 -  PREMIER FARNELL Poland
+  - 4856356 -  Premier Farnell Rest of Eastern Europe
+  - 4854419 -  PREMIER FARNELL Rest of World
+  - 4854418 -  PREMIER FARNELL Slovak Republic
+  - 4731011 -  Premier Farnell Spain
+  - 4731003 -  PREMIER FARNELL UK LTD
+  - 3595753 -  Prestigia Europe
+  - 3752305 -  Prestigia.com US
+  - 4915744 -  Pretty Wire
+  - 1464653 -  Priceline.com
+  - 4441431 -  Priceline.com UK
+  - 1526077 -  Priceplunge & NothingButSavings
+  - 1571172 -  PriceRunner - Vergleichen Sie, bevor Sie kaufen
+  - 5040583 -  PRIMAGRAN.CZ
+  - 4957357 -  Print Pictures US
+  - 2187719 -  PrintingForLess
+  - 1598897 -  Priority Pass
+  - 5111342 -  Prioritytireoutlet.com
+  - 4949743 -  Prive Revaux
+  - 5214722 -  Privé Revaux
+  - 4936965 -  Pro Football Focus
+  - 4769945 -  ProdejParfemu.cz
+  - 4429877 -  Prodeti.cz
+  - 3909954 -  Professional Supplement Center
+  - 4054252 -  ProFlowers / ProPlants
+  - 4780243 -  Proform Fitness
+  - 2200154 -  ProHealth
+  - 5053079 -  PROMOBILY.CZ
+  - 3579758 -  Prosoft Engineering
+  - 5009684 -  Protect America
+  - 2366516 -  PRWeb
+  - 4735928 -  PSContacts.com
+  - 2193491 -  PsPrint
+  - 3052006 -  Psychic Source
+  - 3547065 -  Public Storage
+  - 4521076 -  PublicData.com
+  - 4134158 -  Publishers Clearing House
+  - 5213937 -  Puck Giant
+  - 2910473 -  PUR The Complexion Authority and Cosmedix
+  - 5176638 -  PurAthlete.com
+  - 4593134 -  PureFlix.com
+  - 3332345 -  PureFormulas-health supplements-Thorne, Metagenics & more!
+  - 5052805 -  Purefy
+  - 5231242 -  Pureganic
+  - 5011825 -  Puritans Pride
+  - 5113656 -  Purity Cosmetics
+  - 4968921 -  puzzleyou.com
+  - 1693636 -  Pyramyd Air
+  - 4788100 -  Q-Link
+  - 3014150 -  Qatar Airways
+  - 4878590 -  Quay Australia
+  - 5170558 -  Queensway Hotels Limited
+  - 2357845 -  QuickBooks Canada
+  - 4780913 -  Quickbooks Checks & Supplies
+  - 2007719 -  Quill
+  - 5212065 -  Qustodio
+  - 882408 -  QVC.com
+  - 4954424 -  racechip US
+  - 4975046 -  Rack Room Shoes
+  - 3070943 -  Radisson Hotels
+  - 4017493 -  Radlbauer.de -  Die ganze Fahrradwelt
+  - 4917829 -  Raffaello Network
+  - 4615270 -  Rainbow Shops
+  - 5214670 -  Rains
+  - 4292981 -  Rally House
+  - 5074262 -  Randolph Handcrafted Eyewear
+  - 4491880 -  Rapala
+  - 2078912 -  Rapidfax
+  - 5116349 -  Ratanea.sk
+  - 4123309 -  RateElert
+  - 5178287 -  Rawlings
+  - 3175074 -  Ray-Ban
+  - 4501936 -  Razer Europe
+  - 4439148 -  Razer US
+  - 5147151 -  Razorgator
+  - 4979675 -  RDX Sports
+  - 3383849 -  Reading Eggs
+  - 4127643 -  Real Madrid Shop
+  - 5123117 -  Rebel.com
+  - 4681349 -  Red Carnation Hotels
+  - 4820767 -  Red Dress Boutique
+  - 3272151 -  Red Roof
+  - 4689514 -  Redheart Affiliate
+  - 5099113 -  Rednux Klimaanlagen DACH
+  - 3692575 -  Redplum by Valassis
+  - 4738538 -  Reebonz
+  - 3987655 -  Reeds Jewelers
+  - 4521626 -  RefrigiWear
+  - 5090243 -  Regus Management Group
+  - 4158881 -  Rehab Scout
+  - 4905039 -  REJNOKOBUV.CZ
+  - 5099199 -  Rejnokobuv.sk
+  - 3773522 -  Relaxero.sk
+  - 5103363 -  Relay by Republic Wireless
+  - 4616713 -  RentalCars.com
+  - 5029492 -  Rentalcars.com – Central & Eastern Europe, Russia
+  - 4619883 -  RepairClinic
+  - 4059510 -  Republic Wireless
+  - 4957068 -  RescueBox.com
+  - 4888547 -  Reservations.com
+  - 867296 -  Restaurant.com
+  - 5208725 -  RevAir REVeler
+  - 5179005 -  Reverb
+  - 4579683 -  Revival Animal Health
+  - 2423467 -  REVOLVE
+  - 3318586 -  Revzilla.com
+  - 4880706 -  Richmond & Finch
+  - 5175495 -  Riff.net.pl
+  - 4992400 -  Riley Rose
+  - 1103169 -  RingCentral: Business Cloud Phone System
+  - 4033254 -  Ripley's Believe It or Not!
+  - 860321 -  Robeez Footwear Ltd.
+  - 4912977 -  Robert Graham
+  - 3852859 -  Robins Online
+  - 3436579 -  Rockabye
+  - 4296963 -  Rocket Dog |Kelsi Dagger Brooklyn| Pour La Victoire
+  - 4437213 -  Rocket Languages
+  - 3163767 -  Rockport
+  - 5204021 -  Rocky Mountain Oils
+  - 2778242 -  RockyMountainATVMC.com
+  - 4571294 -  RodinneBaleni.cz
+  - 5045259 -  RODINNEBALENIE.SK
+  - 4993504 -  Roger Vivier UK
+  - 4993505 -  Roger Vivier US
+  - 5074207 -  ROKA
+  - 2906885 -  Roku
+  - 857021 -  RomanceHer.com Creative Romantic Gifts
+  - 3931022 -  ROMWE
+  - 4800216 -  RONA
+  - 4951501 -  ROOM-MATEHOTELS EU
+  - 4951503 -  ROOM-MATEHOTELS USD
+  - 2848364 -  RoomMates
+  - 4740515 -  RoseGal
+  - 4316864 -  Rosetta Stone FRANCE
+  - 1503636 -  Rosetta Stone Language Software
+  - 1797996 -  Rosetta Stone UK
+  - 4335350 -  Rosewe
+  - 5071396 -  Ross & Snow
+  - 1508876 -  Ross-Simons
+  - 1600076 -  Roxio Software, Deutschland
+  - 1440856 -  Roxio: Digital Media Software for both PC & Mac
+  - 4478940 -  Royal Caribbean
+  - 5096695 -  Royalty Based Investments
+  - 4736194 -  Rozbalene.sk
+  - 4612012 -  Rozbaleno.cz
+  - 5051244 -  RS Components DE
+  - 5051253 -  RS COMPONENTS ES IT
+  - 5051248 -  RS Components FR
+  - 4984415 -  RS Components Ltd- UK
+  - 3773962 -  RST Brands
+  - 4441453 -  Russell Stover Chocolates
+  - 5126501 -  RVShare
+  - 2678016 -  RVT.com
+  - 5175147 -  S Hulme London Ltd
+  - 1732930 -  S&S Worldwide
+  - 4921192 -  S'well
+  - 4023958 -  Saatchi Art
+  - 4432712 -  Sabon
+  - 5156996 -  Safe & Chic
+  - 1804109 -  Safety Glasses USA
+  - 1227577 -  Safeway.com
+  - 5211106 -  SageFinds
+  - 2234018 -  Saltwaterfish.com
+  - 4010097 -  Samsung
+  - 5158910 -  Samsøe & Samsøe
+  - 5194417 -  Sand & Sky
+  - 5227650 -  Sand Cloud
+  - 1404429 -  Sandals & Beaches Resorts
+  - 5125215 -  SanDisk
+  - 3040830 -  Save.tv
+  - 4898275 -  SCANQUILT.CZ
+  - 4808946 -  Scarosso
+  - 4780307 -  SCDKey
+  - 5132360 -  Schneebeben DE
+  - 4702941 -  SCONTO.cz
+  - 4905511 -  SCONTO.sk
+  - 3824477 -  Scosche
+  - 466941 -  Sea Eagle Inflatable Boats
+  - 3454973 -  Searchmetrics
+  - 3449087 -  Sears
+  - 2590972 -  Sears PartsDirect
+  - 4587355 -  SeatGeek Partner Program
+  - 3163922 -  SeaWorld Parks
+  - 4012682 -  Second Life
+  - 4926671 -  Secondspin.com
+  - 5234946 -  Secret Collagen
+  - 5214474 -  SecureIt Gun Storage
+  - 3442419 -  Seekingarrangement.com
+  - 2905279 -  Send2Fax
+  - 5047092 -  SEPHORA.cz
+  - 4952536 -  Seven Corners
+  - 5156506 -  Shane Co.
+  - 4054260 -  Shari's Berries
+  - 4625942 -  Sheego CZ
+  - 4625941 -  Sheego HU
+  - 1595844 -  Sheet Music Plus
+  - 3773223 -  SHEIN
+  - 5120419 -  ShieldX2
+  - 473140 -  Shindigz
+  - 5115980 -  Shipito
+  - 4133224 -  ShipStation
+  - 2600483 -  shirtinator - UK
+  - 4747814 -  Shoe Carnival
+  - 2938767 -  SHOEBACCA.com
+  - 1480012 -  Shoeline.com
+  - 5006930 -  Shop Your Way
+  - 5163827 -  Shop.fox
+  - 5165515 -  Shop.sega
+  - 3857051 -  Shoparena.sk
+  - 2609575 -  shopDisney
+  - 4965120 -  shopDisney UK
+  - 5137344 -  Shopkick
+  - 1845109 -  ShopKitchenAid.com
+  - 2217435 -  Shoplet.com
+  - 4524712 -  Shopper's Voice
+  - 5104384 -  ShopRunner.com
+  - 5165516 -  ShopTheWalkingDead
+  - 4686482 -  ShopWSS
+  - 4914706 -  ShowTickets.com
+  - 3528472 -  Shuyao - DE
+  - 3330813 -  Sierra
+  - 5004983 -  Sightseeing Pass
+  - 3956402 -  Signs, Banners, and Magnets On The Cheap
+  - 4932883 -  SIKO.CZ
+  - 4992724 -  SIKO.SK
+  - 2876766 -  Silk'n
+  - 2011460 -  Silkies
+  - 4825104 -  Silver Cuisine by bistroMD
+  - 3468748 -  Silver Gold Bull Profit Trove
+  - 3874186 -  SilverRushStyle
+  - 5014304 -  SilverSingles US
+  - 4078821 -  Simple Mobile
+  - 2925117 -  simplehuman
+  - 2372739 -  SimpleTuition
+  - 3966243 -  SimpliLearn
+  - 5164288 -  SimpliSafe
+  - 3348440 -  Simply To Impress
+  - 2796299 -  Singer22
+  - 4587178 -  Sixt - Rent a car - US
+  - 4845780 -  Sixt Rent a car - RUS
+  - 4754470 -  Sizeer.cz
+  - 4754475 -  Sizeer.sk
+  - 4692083 -  SK-II
+  - 3892542 -  Skagen
+  - 1850236 -  Skis.com
+  - 5003935 -  Skylight
+  - 4904478 -  Skyscanner Brazil
+  - 4871287 -  Skyscanner Canada
+  - 5076410 -  Skyscanner Hong Kong
+  - 4904491 -  Skyscanner Latam
+  - 5076414 -  Skyscanner Philippines
+  - 4904458 -  Skyscanner Poland
+  - 5076405 -  Skyscanner Taiwan
+  - 2528668 -  Skyscanner UK
+  - 4904474 -  Skyscanner United Arab Emirates
+  - 4597752 -  Skyscanner USA
+  - 2709631 -  Skytours US
+  - 4738079 -  Sleeping Duck
+  - 3781746 -  Slevadne - CZ
+  - 3936405 -  Slever.cz
+  - 4285555 -  Slevoking.cz
+  - 3707193 -  SLEVOTEKA.CZ
+  - 3992606 -  Sling TV LLC
+  - 1215754 -  SlipCoverShop
+  - 5098844 -  SmartAsset Affiliate Program
+  - 3940130 -  SmartBuyGlasses
+  - 2905272 -  SmartFax
+  - 4719456 -  Smarthome
+  - 1825555 -  Smartphoto
+  - 5021233 -  Smarttalk PT
+  - 4201179 -  Smarty.cz
+  - 1978840 -  Smilebox
+  - 3514211 -  Smithsonian Museum Store
+  - 4947495 -  Smocked Auctions
+  - 3368042 -  Sneakersnstuff
+  - 5018136 -  Sneakerstudio.com.ua
+  - 5018149 -  Sneakerstudio.cz
+  - 5059199 -  SneakerStudio.fr
+  - 5018138 -  Sneakerstudio.hu
+  - 5018129 -  Sneakerstudio.pl
+  - 5059196 -  SneakerStudio.ro
+  - 5144992 -  Sneaky Vaunt
+  - 4907761 -  Sobelia
+  - 2061630 -  SoccerGarage.com
+  - 5194088 -  SocialEras
+  - 4825139 -  Society6
+  - 4860830 -  Sofft Shoe
+  - 4653847 -  SoFi
+  - 4738082 -  SoftCotton CZ/SK
+  - 5005974 -  SOFTCOTTON.PL
+  - 4836167 -  softwarestars - INT
+  - 4087952 -  Solemates
+  - 5185119 -  Solentro
+  - 3092327 -  SOLSTICEsunglasses.com
+  - 4022601 -  Soma Intimates
+  - 5105573 -  Sonatacoin.cz
+  - 2954255 -  Sonos
+  - 4856867 -  Sonos Europe
+  - 2854924 -  Sorel
+  - 4968535 -  Sorger.sk
+  - 5048752 -  SOTO Store
+  - 4927480 -  Soufeel Jewelry Limited
+  - 2872377 -  SousVide Supreme
+  - 3407281 -  South Moon Under
+  - 3838144 -  Spafinder Wellness 365
+  - 2538056 -  SPAMfighter
+  - 5029587 -  SpeedTrader - A Leading Broker for Day Traders
+  - 4674159 -  Spirit Dental & Vision Insurance
+  - 5150807 -  Splash Wines
+  - 4948923 -  Splendia
+  - 4779661 -  Spokeo
+  - 2120797 -  SpoofCard
+  - 3566818 -  Sportdate
+  - 5177969 -  Sportisimo Europe
+  - 4065356 -  SportObchod.cz
+  - 4984344 -  SPORTOBCHOD.SK
+  - 5182187 -  SportsAnalytics24/7
+  - 4238401 -  Spotřebiče Whirlpool.cz
+  - 3846539 -  Springer Shop INT
+  - 4914411 -  SPYOBCHOD.CZ
+  - 5147880 -  SpyOFF - Com
+  - 2125713 -  SSENSE
+  - 4940679 -  St John Knits
+  - 1946970 -  STA Travel USA
+  - 3801426 -  Stage Stores
+  - 3857130 -  Stampa-su-tela.it
+  - 1460764 -  Stamps.com
+  - 4540908 -  Stance
+  - 4807455 -  Stansted Express
+  - 1631023 -  Staples
+  - 3420776 -  Staples Copy & Print
+  - 1642106 -  Staples UK
+  - 4839946 -  Starz
+  - 4186290 -  STDCheck.com
+  - 3136936 -  Steganos DE
+  - 4503851 -  Stein Mart
+  - 3009921 -  Stila Cosmetics
+  - 4344860 -  Stoklasa.cz
+  - 4509239 -  Stoklasa.PL
+  - 4447520 -  Stoklasa.sk
+  - 3691770 -  STOPzilla
+  - 4937172 -  Storenvy
+  - 4583430 -  Stowaway Cosmetics
+  - 2757954 -  Straight Talk
+  - 5014636 -  Strapworks
+  - 1876573 -  StrawberryNET.com - Skincare-Makeup-Cosmetics-Fragrance
+  - 3279736 -  Stuart Weitzman - US
+  - 4594536 -  Stuart Weitzman Canada
+  - 4531659 -  Stuart Weitzman EU
+  - 4709730 -  STUBHUB EUR
+  - 4709761 -  STUBHUB USD
+  - 5018898 -  StudentUniverse
+  - 3132685 -  Studio Moderna CZ
+  - 2486491 -  StumpsParty.com
+  - 4930237 -  STYLEBOP.com Australia & New Zealand
+  - 5102593 -  STYLEBOP.com Eastern Europe
+  - 3821848 -  STYLEBOP.com France, Italy, Netherlands
+  - 3827066 -  STYLEBOP.com Germany & Austria
+  - 3821852 -  STYLEBOP.com International
+  - 4930232 -  STYLEBOP.com Middle East
+  - 3821847 -  STYLEBOP.com UK
+  - 3821844 -  STYLEBOP.com US & Canada
+  - 5165541 -  StyleWe
+  - 2000046 -  sugardaddie.com
+  - 5104819 -  Sugarfree
+  - 2668440 -  SugarSync
+  - 5191683 -  Suiteness
+  - 1464859 -  Summit Sports Sites
+  - 4727373 -  Sun Pyramid Health
+  - 2456107 -  Sunfood
+  - 4025749 -  Sunglass Hut Affiliate Program
+  - 4517917 -  Sunparks FR
+  - 4727627 -  Suntransfers.com
+  - 2723219 -  SuperBiiz
+  - 3137024 -  SuperBoleteria-SuperBillets-SuperIngressos-SuperTicketLaden
+  - 1599858 -  SuperJeweler
+  - 4948618 -  SuperShuttle
+  - 3884575 -  SuperShuttle Paris
+  - 4758296 -  SUPERZOO.cz
+  - 4027400 -  Supplies Outlet
+  - 3342719 -  SureTrader
+  - 2127008 -  Surftown A/S
+  - 4506402 -  Sushitime.cz
+  - 4506403 -  Sushitime.sk
+  - 4145350 -  SuzanneSomers.com
+  - 4736281 -  SVMoscow
+  - 4909148 -  SVS Home Audio Speakers & Subwoofers
+  - 3250622 -  Swagbucks.com
+  - 4457471 -  Swap.com
+  - 829310 -  Swapalease
+  - 1345547 -  Swarovski - The Magic of Crystal
+  - 1466710 -  Swarovski - the Magic of Crystal
+  - 5076371 -  Swarovski AU
+  - 5076363 -  Swarovski CN
+  - 5076355 -  Swarovski JP
+  - 5076366 -  Swarovski KR
+  - 2178809 -  Swarovski UK
+  - 4150370 -  Swedish Hasbeens
+  - 4931836 -  Swell Investing
+  - 4313458 -  Swiftic
+  - 1645428 -  Swimsuitsforall.com
+  - 2566400 -  Swiss International Air Lines - DE
+  - 4069865 -  Swiss International Air Lines - DK
+  - 4069861 -  Swiss International Air Lines - ES
+  - 2769554 -  Swiss International Air Lines - FR
+  - 4069784 -  Swiss International Air Lines - IT
+  - 3965967 -  Swiss International Air Lines - RUS
+  - 4069864 -  Swiss International Air Lines - SE
+  - 2571974 -  Swiss International Air Lines - UK
+  - 3207328 -  Swiss International Air Lines - US
+  - 4069863 -  Swiss International Air Lines -NO
+  - 4972412 -  Swiss Knife Shop
+  - 3850067 -  Sylvane
+  - 5147910 -  T-shock.eu
+  - 3326244 -  TallMenShoes.com
+  - 3768562 -  Tanga.com
+  - 4421352 -  Target Optical
+  - 4316775 -  Tarifomat.cz
+  - 5027713 -  TaskRabbit
+  - 4110283 -  TaxAct
+  - 4936353 -  Taxi2Airport.com
+  - 4962514 -  Taylor & Hart
+  - 3857263 -  Taylor Made Golf
+  - 5051976 -  TeamViewer
+  - 3297514 -  Tech For Less
+  - 3804984 -  Ted & Teresa Multikanal AB
+  - 3981305 -  TeeOff.com
+  - 2403902 -  Tele2
+  - 4824638 -  Tello
+  - 4836009 -  Temponabytok.sk
+  - 5197358 -  Tenoshare
+  - 4590827 -  Terezia.eu
+  - 4024924 -  Terrain
+  - 3491460 -  Tervis Tumbler
+  - 4356323 -  TESCOMA CZ-PL
+  - 4556917 -  Tescoma.sk
+  - 4384484 -  Tessabit.com
+  - 4962565 -  Test your intolerance
+  - 79362 -  Testclear.com
+  - 4170143 -  TextbookUnderground.com
+  - 3745578 -  Textbookx
+  - 4671274 -  TGW - The Golf Warehouse
+  - 2166878 -  Thalasseo France
+  - 3202213 -  The Art of Shaving
+  - 5218124 -  The Best Gift Baskets
+  - 4907340 -  The Book of Everyone
+  - 1359466 -  The Bradford Exchange Online
+  - 3437015 -  The Credit Pros Credit Repair and Education
+  - 5162275 -  The Feed
+  - 4510271 -  The Formula 1 Store
+  - 2176643 -  The Fruit Company
+  - 5011770 -  The GLD Shop
+  - 847959 -  The House
+  - 2797026 -  The iPage Affiliate Program
+  - 5196670 -  The Jay Morrison Academy Real Estate & Business Program
+  - 5102672 -  The Kooples
+  - 545432 -  The Lighter Side Co.
+  - 4972374 -  The Limited Stores
+  - 4701998 -  The Loan Exchange
+  - 4660703 -  The Maca Team
+  - 2778490 -  The Neat Company
+  - 4691166 -  The North Face DE
+  - 4691163 -  The North Face FR
+  - 4691102 -  The North Face UK
+  - 1220066 -  The Pfaltzgraff Co.
+  - 4492110 -  The Safariland Group
+  - 5070757 -  The Saleroom
+  - 457947 -  The Shopping Channel
+  - 3616712 -  The Sportsman's Guide
+  - 5073755 -  The SSL Store
+  - 2406493 -  The Street
+  - 4467050 -  The Tie Bar
+  - 3926812 -  The Tight Spot
+  - 1463221 -  The Tire Rack
+  - 1620136 -  The Walking Company
+  - 1027018 -  The Wall Street Journal
+  - 1004122 -  The Wine Enthusiast - Wine Cellars, Wine Accessories & More.
+  - 4697410 -  TheApolloBox.com
+  - 2047670 -  TheCuteKid
+  - 5220080 -  Thedoublef
+  - 5113630 -  Theisen's Home Farm & Auto
+  - 5064413 -  Theo+George
+  - 820608 -  ThePerfumeSpot.com
+  - 3015561 -  TheSource.ca
+  - 529768 -  Things You Never Knew Existed Online Catalog
+  - 1382555 -  ThinkGeek
+  - 2965991 -  Thompson Cigar
+  - 4964815 -  Thorlos Socks
+  - 4670825 -  Thorne Research
+  - 4605082 -  ThriftBooks.com
+  - 4593116 -  Thrive Market
+  - 3793612 -  Tibi.com
+  - 4795017 -  Ticket City
+  - 2916100 -  TicketLiquidator
+  - 2288710 -  TicketNetwork
+  - 4999126 -  TickPick Partner Program
+  - 423019 -  Ties.com & Scarves.com
+  - 4749721 -  Tiger Direct
+  - 4748409 -  Tillys
+  - 5144893 -  tink US
+  - 4921612 -  TIPA.EU
+  - 4615508 -  Tipsport.sk
+  - 4767235 -  Titan - Palletforks.com and Titan.Fitness
+  - 4438309 -  TJ Maxx
+  - 4703026 -  TM Lewin GLOBAL
+  - 3485987 -  Tmart.com
+  - 2965253 -  TNVitamins
+  - 4551785 -  Tobi.com
+  - 5062653 -  Tod's UK
+  - 4950420 -  Tod's US
+  - 2656370 -  TollFreeForwarding
+  - 4633623 -  Tommy Bahama
+  - 2452483 -  TomTom
+  - 4799241 -  Tomtop
+  - 5204691 -  ToNiagara
+  - 1815767 -  Tony Robbins
+  - 4955332 -  TOPDOCTORS IT
+  - 4955333 -  TOPDOCTORS UK
+  - 5181669 -  Tophatter
+  - 4370214 -  Toppik
+  - 4923443 -  TopView Sightseeing
+  - 4685690 -  topvyrobky.sk
+  - 4475577 -  TorriaCars.cz
+  - 4475584 -  TorriaCars.sk
+  - 4618733 -  Torrid
+  - 3823262 -  Total Defense Internet Security
+  - 4010327 -  Total Diabetes Supply
+  - 2110809 -  Total Gym
+  - 2736874 -  Total Pet Supply
+  - 4499568 -  Total Wireless
+  - 4846918 -  TOTAL-STORE.CZ
+  - 4846924 -  TOTAL-STORE.SK
+  - 1520433 -  Totaljobs Group Ltd
+  - 4728001 -  Touch Of Modern
+  - 5023734 -  Tough Mudder
+  - 4522183 -  Tour De France - BVB -  Ryder Cup - European Tour
+  - 4666515 -  Tourradar.com
+  - 4238897 -  Tours4Fun
+  - 1038777 -  Tracfone Wireless, Inc.
+  - 5164235 -  Tradeline Supply Company
+  - 4644265 -  Trafalgar
+  - 1875857 -  Trampoline Parts and Supply
+  - 1834639 -  TransUnion
+  - 4899056 -  TransUnion Canada
+  - 5102884 -  TransUnion | ShareAble. For Hires
+  - 1544502 -  Travel Guard
+  - 4697981 -  Travel Talk Tours
+  - 5176496 -  Travelbag
+  - 5176512 -  Travelbag (NetFlights)
+  - 4047032 -  Travelex Insurance
+  - 1549809 -  Travelocity
+  - 1589787 -  Travelocity.ca
+  - 1157059 -  Trend Micro Home & Home Office
+  - 1867119 -  Trend Micro Small & Medium Business
+  - 1633912 -  Trend Times Toys
+  - 4600082 -  TrendySports
+  - 2871603 -  Trinity Road Websites
+  - 4482699 -  Triola.cz
+  - 4482726 -  Triola.sk
+  - 4368684 -  Trip.com (Global)
+  - 2942540 -  TripAdvisor Commerce Campaign
+  - 5097003 -  Trivago (APAC)
+  - 5097004 -  Trivago (LATAM)
+  - 5097000 -  Trivago (UK)
+  - 5097001 -  Trivago (US & CA)
+  - 4536806 -  Trivago Hong Kong
+  - 4539431 -  Trivago Korea
+  - 4536799 -  Trivago Malaysia
+  - 4536804 -  Trivago Taiwan
+  - 3687346 -  Triwa
+  - 5005558 -  TROY° innovative Wärmflaschen DACH
+  - 5073160 -  Tru Niagen
+  - 4601410 -  True Value Hardware
+  - 4687799 -  truMedic
+  - 5173253 -  Trusst Brands
+  - 1410292 -  Trusted Personal Loans
+  - 5018286 -  Trusted Tech Team
+  - 2326712 -  Trusted Tours and Attractions
+  - 3083685 -  TRX
+  - 5040623 -  Tu.co.uk
+  - 4098680 -  TUI IE
+  - 1181479 -  TUI UK
+  - 5008361 -  Tulo
+  - 5146980 -  Tuningteile.de
+  - 5011223 -  Turbopass.com
+  - 1905878 -  TurboTax
+  - 2278967 -  TurboTax Canada
+  - 4832275 -  TurnKey Internet
+  - 4930473 -  Turtle Beach
+  - 4937543 -  Turtle Beach EU
+  - 2679058 -  TV Store Online
+  - 4505274 -  tvc-mall.com
+  - 4950054 -  Twigby
+  - 5050150 -  U by Uniworld
+  - 3700393 -  uhrcenter - DE
+  - 5243683 -  UKLG_Amazon Business
+  - 4493231 -  UKLG_Coral
+  - 4562891 -  UKLG_CPI
+  - 5171618 -  UKLG_DHL
+  - 5056237 -  UKLG_Dockers FR, ES Euros
+  - 4948944 -  UKLG_DS
+  - 4774022 -  UKLG_Easyroommate
+  - 4970084 -  UKLG_English Heritage
+  - 4750122 -  UKLG_ExpediaCPI
+  - 4601118 -  UKLG_FanDual
+  - 5080527 -  UKLG_Filmstruck
+  - 4747615 -  UKLG_Gamesys
+  - 4808800 -  UKLG_Greenpeace
+  - 5020787 -  UKLG_Heineken
+  - 4972729 -  UKLG_Hometree
+  - 5130890 -  UKLG_InTouch
+  - 4407316 -  UKLG_Lead Generation
+  - 4851666 -  UKLG_LifeInsurance
+  - 5134638 -  UKLG_Lifetime Training
+  - 5163087 -  UKLG_Lightspeed Research Ltd
+  - 4592403 -  UKLG_Mansion
+  - 4589186 -  UKLG_Marriott Hotels
+  - 5018638 -  UKLG_Maserati
+  - 4690454 -  UKLG_MG
+  - 4615558 -  UKLG_MixRadio
+  - 4905479 -  UKLG_Modainpelle
+  - 5114925 -  UKLG_MoneyPenny
+  - 4963057 -  UKLG_MorleyCollege
+  - 5201085 -  UKLG_My Family Vets Active
+  - 4786239 -  UKLG_Neopost
+  - 4972766 -  UKLG_Nielsen
+  - 4999403 -  UKLG_Nuance
+  - 5113057 -  UKLG_OneFamily
+  - 5151579 -  UKLG_Origin Broadband
+  - 4757768 -  UKLG_OSN
+  - 4758460 -  UKLG_Parrot
+  - 5028464 -  UKLG_PDSA
+  - 4604730 -  UKLG_PeoplesOperator
+  - 4881341 -  UKLG_Plumbs
+  - 4590256 -  UKLG_Prospecthall
+  - 5159057 -  UKLG_Riviera Travel
+  - 5144296 -  UKLG_Royal Mail
+  - 5125567 -  UKLG_Safestyle
+  - 4808913 -  UKLG_Snowden
+  - 4626011 -  UKLG_Spotify
+  - 4895461 -  UKLG_Tena
+  - 5126076 -  UKLG_TENA France
+  - 4999287 -  UKLG_TENA IT
+  - 5126074 -  UKLG_TENA Spain
+  - 4858377 -  UKLG_Travelodge
+  - 5178494 -  UKLG_Unicef 2018
+  - 5178049 -  UKLG_Verisure Sweden
+  - 5009645 -  UKLG_Visa CPI
+  - 2958418 -  Ulla Popken
+  - 4147188 -  Ultra-Pharm.de
+  - 1567450 -  UnbeatableSale.com
+  - 4006953 -  Under Armour
+  - 4044285 -  Under Armour Canada
+  - 684659 -  Undercovertourist.com
+  - 4647697 -  Uniworld
+  - 4386372 -  Unlimited Biking
+  - 4377991 -  UPack
+  - 4733614 -  Upad - The UK's largest online letting agent
+  - 4517529 -  Upstart.com
+  - 4763212 -  Urbanears
+  - 5172590 -  Urbanista
+  - 4265678 -  US Cellular
+  - 2845015 -  US Toy
+  - 2061797 -  USA Travel Shop
+  - 3364990 -  USAA
+  - 2126581 -  USAMilitaryMedals.com
+  - 3435634 -  UsaPetExpress
+  - 4918039 -  USBKill.com
+  - 5201370 -  UsedPhotoPro.com
+  - 4635139 -  usenet International
+  - 1602109 -  UseNeXT - DE
+  - 4900807 -  uShip
+  - 1106703 -  USOUTDOOR.com
+  - 4159536 -  Utrecht Art Supplies
+  - 4885778 -  Vacalia - COM
+  - 3988147 -  Vacances Bleues
+  - 5051847 -  VALASSIS SPAIN
+  - 1344168 -  ValueClick Lead Campaigns
+  - 1854973 -  ValueClick Promotions UK
+  - 4691165 -  Vans DE AT & PL
+  - 4691152 -  Vans FR ES IT CH
+  - 4976017 -  Vans NL DK SE
+  - 4691093 -  Vans UK & IE
+  - 4898021 -  VapeSourcing
+  - 4046087 -  Vapor4Life
+  - 4882569 -  VaporDNA
+  - 2184178 -  vayama – International Travel Solved
+  - 4377572 -  VCM_Betfair
+  - 3466978 -  VCM_BHF
+  - 2989862 -  VCM_Infiniti
+  - 4122110 -  VCM_Ladbrokes
+  - 4406168 -  VCM_Lighter Life
+  - 2969422 -  VCM_Research Now
+  - 4350980 -  VCM_RNLI
+  - 4120101 -  VCM_Stoptober
+  - 3109175 -  VCM_Supersavvyme
+  - 3874944 -  VCM_VisitOrlando
+  - 4931215 -  VECTRA.PL
+  - 2658815 -  Vega
+  - 2719690 -  Vegas Tickets
+  - 4731700 -  VelkyKosik.cz
+  - 4213975 -  VelkéSamolepky.cz
+  - 4851152 -  Vemzu CZ/SK
+  - 4017417 -  Venda CZ/SK
+  - 5067409 -  Verizon Business Markets
+  - 713904 -  Verizon Fios
+  - 1629726 -  Verizon Wireless
+  - 1618656 -  Verseo.com
+  - 5071533 -  Vertoe
+  - 4703428 -  Veterans Advantage
+  - 3031286 -  VetShop.Com
+  - 4762269 -  VIAJES CARREFOUR ES
+  - 4216969 -  Vianda
+  - 4974850 -  VicNic.com - Better Living. Made in Germany.
+  - 5082740 -  Vilfo.com
+  - 3895296 -  Vimeo
+  - 3989208 -  VinAudit.com
+  - 3911216 -  Vinesse Wines
+  - 4974470 -  vineyard vines
+  - 4259724 -  Violet Grey
+  - 3718229 -  VIPRE Antivirus
+  - 5063288 -  Virgin Atlantic - Flight+Hotel
+  - 5166315 -  Virgin Atlantic Airways UK
+  - 5062715 -  Virgin Holidays
+  - 5166344 -  Viscata
+  - 4671921 -  Visit Sealife
+  - 4958532 -  VisitorsCoverage
+  - 2761757 -  Vistaprint Canada
+  - 769194 -  Vistaprint, USA
+  - 4421353 -  VistaVapors
+  - 5107987 -  VISUAL CLICK
+  - 5096733 -  Vitacost.com
+  - 5018394 -  VitaCup
+  - 5093214 -  Vitagene
+  - 4311781 -  Vital Choice Wild Seafood & Organics
+  - 1971416 -  Vital Imagery
+  - 2544507 -  VitalSource
+  - 1491126 -  Vitamin Shoppe
+  - 4901188 -  Vitamix
+  - 4697299 -  VIU
+  - 4384608 -  Vivantis.cz
+  - 4643768 -  Vivantis.RO
+  - 4612042 -  Vivantis.sk
+  - 5187681 -  Vivian Lou
+  - 5163331 -  Vivid Linen
+  - 4802700 -  Vivid Racing
+  - 2724900 -  VividSeats.com
+  - 4480599 -  Viviscal Hair Growth and Hair Care Program
+  - 4795556 -  Vivre.cz
+  - 4795557 -  Vivrehome.sk
+  - 4460474 -  VMD-drogerie.cz
+  - 3144729 -  VMware
+  - 4231890 -  VogueWigs.com
+  - 5018082 -  Voidu B.V.
+  - 2909821 -  Volusion
+  - 1227578 -  Vons.com
+  - 4860781 -  VonZipper
+  - 2691607 -  Vrbo
+  - 4095005 -  VSP Individual Vision Plans
+  - 5156229 -  VUCH Eastern Europe
+  - 3659001 -  Vueling World Wide
+  - 5114247 -  Wacoal
+  - 2568723 -  Walgreens
+  - 4965130 -  Walt Disney World – The Walt Disney Travel Company Ltd
+  - 987860 -  Warner Bros. Online Shop
+  - 5110321 -  Warp + Weft
+  - 3422079 -  Watch Station
+  - 4996706 -  Watchmaxx
+  - 4739851 -  Way.com
+  - 5206455 -  Wayfair North America
+  - 4681729 -  WaySpa - Find The Best Spas
+  - 5030608 -  WD Europe
+  - 4930717 -  WE ARE KNITTERS EU
+  - 4930860 -  WE ARE KNITTERS US
+  - 2220199 -  Web Hosting Pad
+  - 2488215 -  Web2Carz
+  - 4162890 -  WEBER SCHUH DE
+  - 2093993 -  Webhallen
+  - 4731409 -  Weekend in Italy
+  - 2846986 -  Weight Watchers FR
+  - 1813209 -  Weight Watchers Online
+  - 4958919 -  Weighting Comforts
+  - 1404247 -  WeightWatchers.ca
+  - 1134346 -  WeightWatchers.com
+  - 4366233 -  Well.ca
+  - 4474281 -  WellnessFX
+  - 2313822 -  West Marine
+  - 2767162 -  West, A Thomson Reuters Business
+  - 4626762 -  WesternDigital.com
+  - 5083520 -  WeWork
+  - 4246741 -  White Cloud Electronic Cigarettes
+  - 4022603 -  White House Black Market
+  - 4552974 -  Wideo-Professional Videos In Minutes
+  - 5083952 -  WildFang
+  - 4934384 -  Willsoor Eastern Europe
+  - 4511561 -  Wimbledon - NHL - Team GB - Celtic FC – Leicester Tigers
+  - 4073656 -  Wine Insiders
+  - 2387081 -  Winebasket/Babybasket/Capalbosonline
+  - 5124964 -  Winehouse.cz
+  - 4884924 -  WingSupply
+  - 3043463 -  Wise Food Storage
+  - 4996850 -  Withings
+  - 4552247 -  wmfCookware
+  - 4930108 -  WOJAS.CZ
+  - 4930110 -  WOJAS.RO
+  - 2903144 -  Wolford
+  - 4054207 -  Wolters Kluwer Law & Business
+  - 3194603 -  Wondershare
+  - 4536265 -  WoodSpring Hotels
+  - 2422401 -  Woodwind & Brasswind
+  - 4909784 -  Woot!
+  - 5105590 -  Woox.cz
+  - 4359264 -  Workshare
+  - 893475 -  World Book Store
+  - 5104255 -  World Wide Stereo
+  - 3711150 -  Worldwide Golf Shops
+  - 5048533 -  WorldWinner.com
+  - 2778446 -  WristbandExpress.com
+  - 1838988 -  WWE
+  - 4755756 -  www.CRUISE.co.uk
+  - 2182659 -  www.ehotel.com worldwide online hotel reservations
+  - 2742115 -  Wyndham Hotel Group
+  - 4381551 -  Wyndham Hotel Group - Germany
+  - 4618309 -  X-Doria
+  - 5166013 -  X3 Complete Home Gym
+  - 5015546 -  XCoser - Cosplay Costume
+  - 4896123 -  XCVI
+  - 4553418 -  Yahoo Small Business
+  - 1121438 -  Yahoo! Affiliate Program
+  - 5110058 -  Yankee Candle UK
+  - 4909104 -  YETI Cooler
+  - 2208505 -  YLighting
+  - 4996978 -  Yoga International
+  - 4507185 -  Yoins - Women's Clothing
+  - 4009977 -  YorkPhoto.com
+  - 2898630 -  Yves Rocher US & CA
+  - 5124968 -  Yves-rocher.cz
+  - 5124970 -  Yves-rocher.sk
+  - 5122345 -  Zacks Trade
+  - 4777179 -  Zaful
+  - 5121884 -  Zales
+  - 3853787 -  ZALORA - HK
+  - 3852850 -  ZALORA - ID
+  - 3852826 -  ZALORA - MY
+  - 3852851 -  ZALORA - PH
+  - 3852827 -  ZALORA - TH
+  - 3852825 -  ZALORA SG
+  - 3784989 -  Zamenej.sk
+  - 5095811 -  Zappos Insights
+  - 276652 -  Zappos.com
+  - 1124214 -  zChocolat.com
+  - 4870701 -  Zenfolio.com
+  - 5093462 -  ZenMate VPN - INT
+  - 2909763 -  ZENMED Skin Care Products
+  - 4747708 -  Zinus
+  - 3840426 -  Zipcar
+  - 4920320 -  Zizo Wireless
+  - 3773524 -  Zlavadna.SK
+  - 3846628 -  Zlavodom.SK
+  - 4285556 -  Zlavoking.sk
+  - 4532235 -  ZlavoMAX.sk
+  - 4904912 -  ZLAVOMIX.SK
+  - 4120215 -  Zmercito.cz
+  - 5127645 -  Zodiac Watches
+  - 2257044 -  Zone Diet
+  - 1064909 -  ZoneAlarm, by Check Point
+  - 684993 -  Zoobooks Magazine
+  - 2498435 -  ZookaWare
+  - 1681253 -  zooplus.co.uk - My Petshop
+  - 3600617 -  ZOOT.cz
+  - 4602889 -  ZOOT.sk
+  - 5083951 -  ZooVaa
+  - 4683856 -  Zoro
+  - 4642615 -  Zoro Tools & Building Supplies UK
+  - 4859615 -  zulily
+  - 1779394 -  zZounds
+  - 4711521 -  ČESKÁ POJIŠŤOVNA.cz
+- [Impact](https://impact.com/affiliate-marketers/)
 - [ShareASale](https://www.shareasale.com/)
 - [SkimLinks](https://skimlinks.com/)
 - [Rakuten Affiliate](https://rakutenmarketing.com/affiliate)
@@ -87,6 +2793,18 @@
 <br/>
 
 - [Knoji](https://gilt.knoji.com/questions/gilt-affiliate-program/)
+- [AffiliateAwesome](https://affiliateawesome.com/)
+- https://www.adamenfroy.com/best-high-paying-affiliate-programs
+- https://www.thebalancesmb.com/a-z-list-of-ad-networks-and-affiliate-programs-2531524
+
+<br/>
+
+### Specific Affiliates
+
+<br/>
+
+- Target
+- Walmart
 
 <br/>
 
